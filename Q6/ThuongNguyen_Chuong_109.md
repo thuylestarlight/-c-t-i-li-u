@@ -342,7 +342,7 @@ Không ai nói gì.
 
 Minh Châu bước tới. Dừng lại trước bàn.
 
-Nàng đã chuẩn bị. Ba câu. Câu thứ nhất nói về đề tài luật hôn nhân cổ, tờ đăng ký có chữ ký của ông. Câu thứ hai nói về Hình luật năm trang trong bản chép tay. Câu thứ ba nói về mặt sau trang hai.
+Nàng đã chuẩn bị suốt buổi chiều. Ở tầng hai, bên cửa sổ đông. Ở trai phòng, trước ngọn đèn dầu. Trên đường qua nhà bếp, kho củi, cửa nhỏ. Ba câu. Câu thứ nhất nói về đề tài luật hôn nhân cổ, tờ đăng ký có chữ ký của ông. Câu thứ hai nói về Hình luật năm trang trong bản chép tay. Câu thứ ba nói về mặt sau trang hai.
 
 Nàng mở miệng.
 
