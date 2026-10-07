@@ -20,6 +20,22 @@ Người qua đường dừng lại. Một người bán củi. Một bà lão x
 
 Không ai biết nhà ai.
 
+Rồi có người trả lời. Từ trong cổng, sau lưng Minh Châu.
+
+"Phố Đông," Diêu Tử Kỳ nói. Không to. Y đứng ở hiên phòng gác cổng, tay cầm cuốn sổ nhỏ. "Con thợ khắc bản. Phường in phố Đông."
+
+Hai giám sinh Võ hệ quay lại. Nhìn y. Nhận ra lẫm sinh đứng thứ năm.
+
+"Lẫm sinh biết rõ nhỉ," một người nói.
+
+"Phụ thân thần giữ sổ Lễ Bộ," Diêu Tử Kỳ nói. "Lễ Bộ trả tiền khắc bia. Lễ Bộ ghi tên, quê, nghề của cha người đỗ. Thần đọc sổ."
+
+Y dừng lại.
+
+"Ai đọc sổ cũng biết. Không ai đọc."
+
+Hai giám sinh Võ hệ đi. Diêu Tử Kỳ cúi chào Minh Châu. Rồi cũng đi. Không nhìn tấm bia thêm lần nào.
+
 Giờ Thìn, có một ông lão đi tới từ phía phố Đông.
 
 Sáu mươi tuổi, có lẽ. Lưng hơi còng. Áo vải nâu, tạp dề da cũ buộc ngang lưng, chưa tháo. Hai tay to, đầu ngón tay thâm đen. Mắt nheo lại, như người nhìn gần nhiều năm.
