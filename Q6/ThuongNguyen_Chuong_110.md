@@ -4,7 +4,7 @@ Hai mươi tháng Chín. Canh hai.
 
 Hai mươi mốt bậc.
 
-Âu Dương Chỉ không cần đếm. Ba mươi năm, chân ông biết. Bậc thứ nhất cao hơn các bậc khác một đốt ngón tay. Bậc thứ bảy có một vết nứt chéo. Bậc thứ mười bốn trơn, vì nước rỉ từ vách mỗi mùa mưa, đã ba trăm năm.
+Âu Dương Chỉ không cần đếm. Ba mươi năm, chân ông biết. Bậc thứ nhất cao hơn các bậc khác một đốt ngón tay. Bậc thứ bảy có một vết nứt chéo. Bậc thứ mười bốn trơn, vì nước rỉ từ vách mỗi mùa mưa, đã gần hai trăm năm.
 
 Ông vẫn đếm.
 
