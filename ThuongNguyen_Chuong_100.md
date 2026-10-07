@@ -176,7 +176,7 @@ Ngón tay ông không nhấc ra.
 
 Phụ vương không nói gì.
 
-"Hôn luật bản gốc. Cuộn lụa trong hòm ba gian giáp tự. Cuối điều thứ ba: *Thẩm nhân giả diệc nhiên.* Người xét người khác cũng vậy. Dấu đóng là một con thú một sừng. Không phải dấu năm nhà."
+"Hôn luật bản gốc. Cuộn lụa trong hòm ba gian giáp tự. Cuối điều thứ ba: *Thẩm nhân giả, diệc nhiên.* Người xét người khác, cũng vậy. Dấu đóng là một con thú một sừng. Không phải dấu năm nhà."
 
 Phụ vương không nói gì.
 
@@ -186,7 +186,9 @@ Phụ vương không nói gì.
 
 Nàng dừng lại.
 
-"Nhi thần đã tra. *Quốc Điển* không có Đại Lý. *Lễ chí* không có Đại Lý. Năm đời, Thương Nguyên không có nha môn nào tên ấy."
+"Ở Thương Nguyên không có nơi nào gọi là Đại Lý. Hai nhà tranh chấp thì hai Châu Mục tự dàn xếp. Không xong thì đưa lên triều, phụ vương định. Không có nơi nào *xét*."
+
+"Chỉ có một dòng trong mục lục khu bắc Lan Đài. *Kệ cửu. Hộc nhị. Đại Lý án lục. Sáu quyển.* Ở sau hai người lính phụ vương đặt."
 
 "Vậy ai khắc chữ *thẩm* lên vách một đường hầm có rãnh xe, dưới lòng núi Thiết Châu?"
 
@@ -220,11 +222,15 @@ Phụ vương nhìn nàng.
 
 "Trên cửa hầm số bảy, người ta khắc một chữ *thất*. Ở Thiết Châu, nó chỉ là một con số."
 
-"Mùng sáu, ở Kinh Triệu phủ, mười hai hộ tá điền đứng dưới sân. Một ông lão sáu mươi mốt tuổi nói *chưa từng ứng* hai lần. Một người con gái không hộ tịch bị hỏi *ngươi là ai*. Phán quyết ba dòng. Không có Đại Lý. Không có tái thẩm."
+"Mùng sáu, ở Kinh Triệu phủ, mười hai hộ tá điền quỳ dưới sân. Một ông lão sáu mươi mốt tuổi nói *chưa từng ứng* hai lần. Một người con gái không hộ tịch bị hỏi *ngươi là ai*."
+
+"*Quốc Điển*, quyển mười một: người làm chứng phải có hộ tịch. Danh Dự Lệ, thời lập quốc: người thấy, bất luận lương tiện, đều được trình. Lời thì xét. Xét mà thật, thì là chứng."
+
+"Phán quyết: không có chứng hợp lệ chống lại sổ. Không ai xét."
 
 "Nhi thần đứng ở cuối sân."
 
-Phụ vương nhìn áo vải xám.
+Phụ vương nhìn áo vải xám. Áo mượn của một người đàn bà tát gàu ở núi đông. Giặt bằng nước suối gỉ sắt. Không trắng lại được.
 
 "Nhi thần không bước ra."
 
@@ -296,11 +302,13 @@ Nàng dừng lại.
 
 "*Cô nương nhớ. Nha môn không nhớ.*"
 
-"Phụ vương nói cái tên tự chết. Nhi thần không thấy thế. Nhi thần thấy một vòng tròn bị đục. Dấu đục dày đặc. Không sót một chỗ."
+"Phụ vương nói cái tên tự chết. Nhi thần không thấy thế."
+
+"Nhi thần thấy một tấm biển đồng ở giá cờ thứ sáu, Chính Dương lâu. Bị mài. Một dải lụa sau dấu thứ năm trên thệ văn. Bị cạo. Một vòng tròn trên vách đường hầm dưới núi đông. Bị đục."
 
 Nàng nhìn khối đá.
 
-"Người đục hình giữa thì đục kỹ."
+"Mài. Cạo. Đục. Không có cái tên nào tự chết như thế."
 
 * * *
 
