@@ -70,7 +70,7 @@ Nàng ấy đặt cuốn sổ phẳng lại.
 
 "Thư lại áo xanh," Minh Châu nói.
 
-"Ba lần," Hạ Thanh nói. "Mùng một tháng Mười. Mùng bốn. Hôm qua."
+"Ba lần," Hạ Thanh nói. "Hai mươi ba tháng Chín. Mùng bốn tháng Mười. Hôm qua."
 
 Nàng ấy lật sổ nhận. Đặt cạnh sổ mượn.
 

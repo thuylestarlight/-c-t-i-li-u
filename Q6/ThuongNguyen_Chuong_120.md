@@ -392,7 +392,7 @@ Hắn dừng lại.
 
 Không phải câu hỏi.
 
-Cảnh Thần cúi chào. Đúng lễ của em trước chị.
+Cảnh Thần cúi chào. Đúng lễ của đệ trước tỷ.
 
 "Đệ tâu vì sách mọt," hắn nói. "Vách rỉ nước. Gần hai trăm năm chưa kiểm. Đại tỷ thương sách. Cả Hạo Kinh biết. Đệ nghĩ đại tỷ sẽ mừng."
 

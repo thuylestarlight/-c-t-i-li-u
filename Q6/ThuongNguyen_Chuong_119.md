@@ -104,7 +104,7 @@ Nàng ấy không ghi gì. Sổ nhận mở. Bút trên giá.
 
 "Ba ngày," nàng ấy nói.
 
-"Hai đêm," Minh Châu nói. "Mai là mùng một. Đêm mùng một là đêm cuối."
+"Ba đêm," Minh Châu nói. "Đêm mùng một là đêm cuối."
 
 Hạ Thanh nhìn nàng.
 
