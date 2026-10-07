@@ -1,16 +1,38 @@
-## Chương 100 — Câu Hỏi Không Ai Muốn Trả Lời
+## Chương 100 — Hầm Số Bảy Nằm Trên Đất Của Ai?
 
 Mùng mười tháng Tám. Giờ Mão.
 
-Khối đá nằm trên án thư. Bọc trong một vuông vải bố. Cả đêm.
+Khối đá nằm trên án Lan Đài. Bọc trong một vuông vải bố. Cả đêm.
 
 Minh Châu không mở. Nàng không cần mở.
 
-Ba chữ. Khắc sâu. Nét chân phương, chữ của bia, không phải chữ của thư. *Thẩm nhi hậu.* Nét cuối chữ *hậu* chạy tới mép đá thì dừng. Chỗ ấy đá vỡ.
+Một mặt vỡ. Một mặt phẳng. Một đường cong của vòng tròn. Bên trong, dấu đục. Bên ngoài, ba chữ.
 
-Xét rồi mới…
+Đêm mùng ba tháng Sáu, Lục Trạch mang nó lên từ đoạn phía tây hầm số ba. Vách sập vào một đường hầm khác. Rộng. Có vòm. Có rãnh xe. Ở vách bên kia, một vòng tròn như trên cửa hầm số bảy.
 
-Xét rồi mới gì?
+*Người đục hình giữa thì đục kỹ. Người đục chữ quanh vành thì đục tới đây. Rồi bỏ.*
+
+Ba chữ nằm ở mặt trong vách. Phía không ai vào. Không ai thấy để đục.
+
+Tờ giấy in kẹp trong cuốn sổ bìa vải xanh. Ba chữ trắng trên nền đen. Một tháng nàng không đọc được. Rồi ở khách viện Thiết Thành, một người con gái vừa được cắt dây trói đặt ngón tay lên từng chữ.
+
+*Thẩm. Nhi. Hậu.*
+
+* * *
+
+Nàng không cần đọc tiếp. Nàng biết chữ sau.
+
+*Lưỡng gia hữu tranh, bất tự đoạn. Trình Đại Lý, thẩm nhi hậu định.*
+
+Mẫu khế ước Bách Lý, điều mười hai. Chứng Ấn đường. Gần hai trăm năm tuổi. Nàng đọc nó bốn ngày trước khi đọc cuộn lụa hôn luật có dấu giải trãi. Chín ngày trước khi nghe một người lính Thiết Châu đọc câu thề thứ bảy.
+
+*Bất sát vị thẩm.*
+
+Thẩm. Xét.
+
+Chữ thứ tư bị đục. Ở chỗ vỡ.
+
+Chữ ấy là *định*.
 
 * * *
 
@@ -22,207 +44,237 @@ Cuốn sổ mở ở trang đêm qua. Mực đã khô.
 
 Nàng chấm bút. Viết thêm một dòng.
 
-*Mùng mười. Hỏi phụ vương.*
+*Mùng mười. Văn Hoa điện.*
 
-Không có dấu hỏi. Câu hỏi thật nằm ở một trang khác. Trang nàng viết từ ba hôm trước, rồi gấp góc lại.
+Rồi nàng lật ngược lại. Mười mấy trang. Tới trang hai mươi tháng Tám năm ngoái.
+
+*Phụ vương nói: chưa từng. Người xưa chép nhầm một nét.*
+
+*Phụ vương nắm cổ tay ta. Năm ngón.*
+
+Gần tròn một năm.
 
 * * *
 
 A Nhu vào.
 
-"Thái y viện cho người sang, điện hạ. Đêm qua bệ hạ ho ra máu hai lần. Gần sáng mới ngủ được. Giờ Dần tỉnh, uống được nửa bát cháo loãng."
+"Thái y viện cho người sang, điện hạ. Đêm qua bệ hạ ho ra máu. Gần sáng mới ngủ được." A Nhu dừng lại. "Thái y dặn chiều hãy tới. Buổi sáng bệ hạ còn mệt."
 
-A Nhu dừng lại.
+Minh Châu buộc lại nút vải.
 
-"Thái y dặn chiều hãy tới. Buổi sáng người còn mệt."
-
-"Buổi chiều thái y ngồi trong điện," Minh Châu nói. "Nội giám ngồi trong điện. Buổi sáng chỉ có Khởi cư lang."
-
-A Nhu không hiểu. A Nhu không hỏi.
-
-"Lấy áo vải xám," Minh Châu nói.
+"Lấy áo vải xám," nàng nói.
 
 A Nhu nhìn nàng.
 
 "Cái hôm mùng sáu."
 
+A Nhu không hỏi. Nàng ấy đi lấy áo.
+
 * * *
 
 Nàng không để ai bưng khối đá.
 
-Ôm trước ngực. Vải bố cọ vào cổ tay. Hành lang dài sang tẩm điện, nửa đường phải dừng một lần, đổi tay.
+Ôm trước ngực. Vải bố cọ vào cổ tay phải. Chỗ năm vết ngón tay năm ngoái đã lành từ lâu. Không còn dấu. Nàng vẫn biết nó ở đâu.
 
-Nội giám trực cửa cúi người. Mở miệng, định nói câu thái y dặn.
+Hành lang từ Lan Đài sang Văn Hoa điện. Nửa đường, nàng dừng một lần, đổi tay.
 
-Minh Châu nhìn hắn.
-
-Hắn ngậm miệng. Lùi sang một bên.
+Mười bước sau lưng nàng, không có ai. Cổng Nam Thiên Tường cách đây một canh giờ đi bộ.
 
 * * *
 
-Tẩm điện. Mùi thuốc đặc tới mức như có hình. Cam thảo. Đương quy. Một thứ đắng nàng không gọi được tên. Và dưới tất cả, mùi của một người nằm lâu một chỗ.
+Ở cửa Văn Hoa điện, nàng gặp mẫu hậu đi ra.
 
-Rèm vén một nửa. Phụ vương ngồi tựa gối cao, vai khoác áo bông. Hai tay đặt trên chăn.
+Áo thường. Tóc búi thấp. Không trâm. Dưới mắt bà có một quầng tím. Như năm ngoái.
 
-Hai bàn tay ấy đã ký ba mươi chín năm Đoan Hòa. Tháng này gầy hơn tháng trước. Đốt ngón nổi lên như mắt tre.
+Bà dừng lại. Nhìn áo vải xám. Nhìn bọc vải trong tay con gái.
 
-Góc điện, sau tấm bình phong vẽ núi, có tiếng giấy. Khởi cư lang. Từ khi phụ vương lâm bệnh, án ghi dời vào trong này. Một nghiên mực. Một chồng giấy. Từng chén thuốc. Từng câu nói.
+Năm ngoái, bà nói *đọc ngắn thôi*.
 
-"Con tới sớm," phụ vương nói. Giọng khàn. Rõ. "Thái y bảo con chiều hãy tới."
+Năm nay bà không nói gì.
+
+Bà nhìn bọc vải thêm một nhịp. Rồi bước sang một bên.
+
+Bà để nàng đi qua.
+
+* * *
+
+Thư phòng Văn Hoa điện.
+
+Chiếc giường hẹp vẫn kê cạnh chậu than, dưới bức họa. Chậu than tháng Tám không đốt. Hộp ấn rồng đặt trên án nhỏ cạnh giường, phía ghế mẫu hậu ngồi. Mùi thuốc đặc tới mức như có hình. Cam thảo. Đương quy. Một vị đắng nàng không gọi được tên.
+
+Phụ vương ngồi tựa gối cao. Hai tay đặt trên chăn. Đốt ngón nổi lên như mắt tre.
+
+Góc thư phòng, chiếc hòm gỗ sơn đen vẫn ở đó. Khóa đồng. Con dấu rồng.
+
+Gian ngoài, sau tấm bình phong, có tiếng mài mực. Từ khi phụ vương không ra triều được, Khởi cư lang ngồi ở gian ngoài. Lão quan tóc bạc. Một nghiên mực. Một chồng giấy.
+
+Phụ vương mở mắt.
+
+"Thái y bảo con chiều hãy tới."
 
 "Buổi chiều phụ vương sẽ ngủ."
 
-Phụ vương nhìn áo nàng. Áo vải xám. Không thêu.
+Ông nhìn áo nàng. Áo vải xám. Không thêu.
 
-Rồi nhìn xuống bọc vải trong tay nàng. Lâu hơn một cái nhìn.
-
-Minh Châu thấy. Từ hôm đọc tập dày của Hạ Thanh, nàng thấy cả những gì không phải là lời.
-
-"Ngồi đi."
-
-Nàng không ngồi. Nàng đặt bọc vải lên chiếc kỷ thấp cạnh giường, cạnh bát thuốc đang nguội. Rồi quay về phía bình phong.
-
-"Khởi cư lang ở lại," nàng nói. "Hôm nay bổn cung hỏi gì, phụ vương đáp gì, xin ghi đủ."
-
-Tiếng giấy sau bình phong im bặt.
+Rồi nhìn bọc vải.
 
 * * *
 
-Phụ vương không nhìn về phía bình phong. Phụ vương nhìn con gái.
+"Khởi cư lang," phụ vương nói. Không to. "Ra ngoài hiên."
 
-"Lui ra," người nói. Không to. "Mang cả nghiên đi."
+Tiếng mài mực dừng.
 
-Một nhịp im.
+"Bẩm bệ hạ…"
 
-"Bẩm," giọng Khởi cư lang, thấp, cẩn trọng. "Theo lệ, lời Thượng nói…"
+"Trẫm không nói gì. Ghi như thế."
 
-"Lệ do ta đặt."
+Tiếng nghiên đậy nắp. Tiếng bước chân già, chậm. Tới cửa thì dừng lại. Nửa nhịp.
 
-Phụ vương ho một tiếng. Dằn xuống.
-
-"Hôm nay ta không nói gì. Ghi như thế."
-
-Tiếng nắp nghiên đậy lại. Tiếng bước chân vòng qua mép bình phong. Một người trung niên gầy, tay áo lốm đốm mực. Đi ngang qua Minh Châu không ngẩng lên.
-
-Tới cửa, dừng lại. Nửa nhịp. Đúng nửa nhịp.
-
-Như nửa dòng trống trong tập dày của Hạ Thanh.
-
-Rồi đi ra. Cửa khép.
+Rồi cửa khép.
 
 * * *
 
-"Con muốn có người ghi," phụ vương nói. "Cho nên con tới giờ này."
+Minh Châu đặt khối đá lên chiếc kỷ thấp cạnh giường. Cạnh bát thuốc.
 
-"Phụ vương vẫn đọc người khác như xưa."
+Nàng không ngồi.
 
-"Ta già. Ta không mù." Phụ vương đưa cằm về phía bọc vải. "Mở ra."
+"Mở ra," phụ vương nói.
 
-Minh Châu tháo nút.
+Nàng tháo nút.
 
-Khối đá xám. Mặt trên mài nhẵn. Mặt dưới còn nham nhở, như lúc người ta đục nó khỏi chỗ cũ. Ba chữ. Chữ *hậu* chạy ra tới mép vỡ.
+Mặt đá phẳng. Một đường cong. Bên trong, dấu đục. Bên ngoài, ba chữ móc câu. Rồi mép vỡ.
 
 Phụ vương không hỏi đá từ đâu tới.
 
-Nàng đã chuẩn bị cho nhiều thứ. Cho cơn giận. Cho câu *con lấy ở đâu ra*. Cho cái im lặng thật dài phụ vương vẫn dùng ở triều mỗi khi một tấu chương làm người không vui, rồi chuyển sang chuyện khác.
+Ở Thiết Thành, nàng đã đưa tờ giấy in cho Mộ Dung Châu Mục. Ông ta không nhìn tờ giấy. Ông ta nhìn nàng. *Bổn châu không trả lời. Như bổn châu không trả lời con gái bổn châu năm nó mười hai tuổi.*
 
-Nàng không chuẩn bị cho việc phụ vương đưa tay ra.
+Năm ngoái, trước khi trả lời, mắt ông đi về phía chiếc hòm sơn đen. Như người đi qua một cánh cửa, liếc vào xem nó còn đóng không.
 
-Bàn tay gầy rời khỏi chăn. Ngón trỏ đặt lên chữ đầu tiên. *Thẩm.* Không dò theo nét. Chỉ đặt lên, rồi để yên. Như người ta đặt tay lên vai một người quen cũ giữa đám đông, cho chắc mình không nhận nhầm.
+Nàng nhìn mắt ông.
 
-Nếu Hạ Thanh ngồi ở góc án, ở lề sẽ có một dòng:
-
-*Không hỏi đá từ đâu. Tay đặt trên chữ Thẩm. Không nhấc ra.*
-
-"Từ hầm số bảy," Minh Châu nói. Dù phụ vương không hỏi.
-
-Ngón tay không nhấc ra.
+Mắt ông không đi đâu cả. Mắt ông ở trên ba chữ.
 
 * * *
 
-"Nhi thần không tới để hỏi về khối đá," nàng nói.
+Ông đọc được. Ông đọc chữ cổ từ năm mười tuổi.
 
-Nàng vẫn đứng. Hai tay buông thẳng.
+Bàn tay gầy rời khỏi chăn. Ngón trỏ đặt lên chữ đầu tiên.
 
-"Mấy tháng nay nhi thần đọc nhiều thứ. Nhi thần đọc lại cho phụ vương nghe."
+Không dò theo nét. Chỉ đặt lên. Rồi để yên.
 
-"Con sẽ đọc. Dù ta muốn hay không."
+"*Thẩm nhi hậu*…" ông đọc.
 
-"Vâng."
+Rồi dừng. Đúng chỗ đá vỡ.
 
-Nàng đọc. Không theo thứ tự nàng biết. Theo thứ tự những thứ ấy được viết ra. Như người Lan Đài xếp hồ sơ.
+"Định," Minh Châu nói.
 
-"Mùng bảy tháng Sáu. Thiết Thành. Mộ Dung tiểu thư Thiết Châu viết *thiên tai* lên một tờ giấy trắng, gửi lên triều. Cùng ngày, gửi một ống tre nhỏ đi nơi khác. Sáp xám. Dấu đá xanh. *Tích Vân.*"
+Ngón tay ông không nhấc ra.
 
-Phụ vương không động.
+* * *
 
-"Mười bốn tháng Sáu. Ống tre tới Quốc Tử Giám. Mặt ống đề *Tàng Thư Các*. Không đề tên người nhận. Âu Dương tiên sinh nhận. Không mở. Cất vào trong. Người trực sổ nhận hôm ấy là một ký lục sinh. Hạ Thanh."
+"Mẫu khế ước Bách Lý, điều mười hai," nàng nói. "*Lưỡng gia hữu tranh, bất tự đoạn. Trình Đại Lý, thẩm nhi hậu định.*"
 
-"Bên trong," nàng nói, "là bản chép trang cuối một cuốn sổ điểm danh. Ba trăm cái tên. Mười ngày mặt nước. Ba con số."
+Phụ vương không nói gì.
 
-Ngón tay trên chữ *Thẩm* hơi ấn xuống. Rất khẽ. Nàng thấy.
+"Hôn luật bản gốc. Cuộn lụa trong hòm ba gian giáp tự. Cuối điều thứ ba: *Thẩm nhân giả diệc nhiên.* Người xét người khác cũng vậy. Dấu đóng là một con thú một sừng. Không phải dấu năm nhà."
 
-"Mùng sáu tháng Tám. Kinh Triệu phủ. Ngoại quách. Phủ Tư Mã kiện mười hai hộ tá điền Nam Uyển trang. Mười hai cái tên. Một ông lão sáu mươi mốt tuổi nói *chưa từng ứng* hai lần. Lần thứ hai giọng thấp hơn, tay nắm lại trên đầu gối. Một cô nương không hộ tịch bị hỏi *ngươi là ai*, và không có câu trả lời."
+Phụ vương không nói gì.
+
+"Câu thề kỵ úy thứ bảy, ở một con hẻm núi phía đông. *Bất sát vị thẩm.* Không giết người chưa được xét."
+
+"Bà ngoại của một nô tỳ không có họ, vẽ bằng que tre trên nền đất. Câu đầu tiên bà dạy, trước mọi câu khác. *Người làm luật thì xét trước, rồi mới định. Người không xét mà định, thì không phải người làm luật.*"
 
 Nàng dừng lại.
 
-"Cuối sân, một người đàn bà áo xám. Đứng suốt phiên xử. Không quỳ. Không nói."
+"Nhi thần đã tra. *Quốc Điển* không có Đại Lý. *Lễ chí* không có Đại Lý. Năm đời, Thương Nguyên không có nha môn nào tên ấy."
 
-Phụ vương nhìn áo nàng. Lần thứ hai.
-
-"Người ấy có thể đã bước ra," Minh Châu nói. "Người ấy không bước ra."
+"Vậy ai khắc chữ *thẩm* lên vách một đường hầm có rãnh xe, dưới lòng núi Thiết Châu?"
 
 * * *
 
-"Mùng bảy tháng Tám. Kinh Triệu phủ có thư gửi Quốc Tử Giám. Phủ Tư Mã có thư gửi Quốc Tử Giám. Tập dày thành ba dòng. Ba dòng theo lệ. Mọi chữ đều đúng."
+Phụ vương vẫn không nói gì.
 
-"Mùng chín. Hạ Thanh mang cả hai tới Lan Đài."
+Nàng đã biết ông sẽ không trả lời câu ấy. Nàng hỏi để ông biết nàng đã đọc tới đâu.
 
-Nàng dừng lại.
+Bên ngoài có gió. Một cánh rèm trúc đập vào khung cửa sổ. Một lần. Rồi thôi.
 
-"Tế Tửu trước nói: *Lan Đài lưu những gì triều đình đã quyết. Quốc Tử Giám lưu những gì triều đình không hỏi.* Mộ Dung tiểu thư viết: *Tàng Thư Các lưu những gì chưa ai quyết.* Tư nghiệp bây giờ nói: *Quốc Tử Giám lưu những gì triều đình không phản đối.*"
-
-"Nhi thần nghĩ mãi một chuyện. Một câu đổi đi một chữ. Là câu cũ. Hay đã là một câu khác."
-
-Phụ vương nhìn nàng rất lâu.
-
-"Con đi vòng xa quá," người nói. "Ta mệt. Hỏi thẳng."
+Bát thuốc trên kỷ đã nguội. Mặt thuốc đóng một lớp váng mỏng.
 
 * * *
 
-Câu hỏi ấy nàng đã mang ba ngày.
+Năm ngoái, nàng hỏi khi ông đang sốt. Khi ông không ngồi dậy được để ký một chữ. Khi ông không còn sức để không trả lời.
 
-Nàng đã đọc nó trong đầu ở miệng hầm số bảy. Khi Hạ Thanh kể về người cha thợ khắc bản bị phạt mười lượng, không ai ghi một lời ông nói. Khi tập ba dòng nằm cạnh tập dày trên bàn Lan Đài.
+Nàng đã biết mình đang làm gì. Đêm ấy nàng còn tự nói với mình về bài thơ của tổ mẫu. Mười chín bậc thềm. Đi xuống rồi thì không đếm lại được.
 
-Nàng tưởng lúc nói ra, nó sẽ nặng như khối đá.
+Hôm nay nàng làm lại đúng việc ấy.
 
-Nó nhẹ hơn thế. Nhẹ tới mức nàng sợ nó tan đi trước khi tới tai người.
+Hôm nay nàng không tự nói gì với mình cả.
+
+* * *
+
+"Người Thiết Châu gọi chỗ ấy là *đất cũ*," nàng nói.
+
+Phụ vương nhìn nàng.
+
+"Hầm số ba sập đêm mùng ba tháng Sáu. Bốn mươi người. Sổ trình mười hai. Nước tràn vào từ phía hầm số bảy, sau mười ngày dâng. Một người con gái Mộ Dung đo mặt nước mỗi sáng. Rồi viết *thiên tai* lên giấy trắng."
+
+"Trên cửa hầm số bảy, người ta khắc một chữ *thất*. Ở Thiết Châu, nó chỉ là một con số."
+
+"Mùng sáu, ở Kinh Triệu phủ, mười hai hộ tá điền đứng dưới sân. Một ông lão sáu mươi mốt tuổi nói *chưa từng ứng* hai lần. Một người con gái không hộ tịch bị hỏi *ngươi là ai*. Phán quyết ba dòng. Không có Đại Lý. Không có tái thẩm."
+
+"Nhi thần đứng ở cuối sân."
+
+Phụ vương nhìn áo vải xám.
+
+"Nhi thần không bước ra."
+
+* * *
+
+Rồi nàng hỏi.
+
+Không nặng như nàng tưởng. Nhẹ. Nhẹ tới mức nàng sợ nó tan trước khi tới tai ông.
 
 "Hầm số bảy nằm trên đất của ai?"
 
 * * *
 
-Bên ngoài có gió. Một cánh rèm trúc đập vào khung cửa sổ. Một lần. Rồi thôi.
+Thư phòng im lặng.
 
-Bát thuốc trên kỷ đã nguội hẳn. Mặt thuốc đóng một lớp váng mỏng.
+Phụ vương không động.
 
-Minh Châu nghe tiếng thở của mình. Và dưới đó, tiếng thở của phụ vương. Chậm. Cuối mỗi hơi có tiếng rít nhỏ, như gió lùa qua khe cửa.
+Nàng nhìn mắt ông. Chờ nó đi về phía chiếc hòm.
 
-Phụ vương không trả lời ngay.
+Nó không đi.
 
-Phụ vương cũng không làm cái việc nàng sợ nhất. Không chuyển sang chuyện khác.
+Hơi thở ông chậm. Cuối mỗi hơi có tiếng rít nhỏ, như gió lùa qua khe cửa. Một hơi. Hai hơi. Ba hơi.
 
-Người nhìn xuống chữ *Thẩm* dưới ngón tay mình.
+Nàng không đếm. Con số tự tới.
 
-"Của một nơi không còn tên."
+Ngón tay ông vẫn đặt trên chữ *thẩm*.
+
+"Của một nơi không còn tên," phụ vương nói.
 
 * * *
 
-Nàng đã nghĩ tới nhiều câu trả lời. Một tên quận. Một tên họ. Một cái tên nàng chưa nghe bao giờ. Hay tên của chính phụ vương.
+Sáu chữ.
 
-Nàng không nghĩ tới câu này.
+Không ngập ngừng. Không nhanh hơn. Không chậm hơn.
 
-Không phải lời chối. Không phải lời nhận. Nó giống tập mỏng hơn. Mọi chữ đều đúng.
+Năm ngoái, nàng nghe giọng ông khi ông nói dối. Nó giống hệt giọng ông nói *chuẩn*. Chỉ có mắt ông là khác, và một câu giải thích thừa.
+
+Hôm nay mắt ông không đi đâu. Và ông không giải thích.
+
+Nàng đã chuẩn bị cho *chưa từng*. Cho *người xưa chép nhầm*. Cho *đừng hỏi nữa*.
+
+Nàng không chuẩn bị cho một câu thật.
+
+Mộ Dung Châu Mục không trả lời con gái mình. Tích Vân hỏi năm mười hai, năm mười lăm, năm mười tám, năm hai mươi. Chưa từng thôi hỏi.
+
+Phụ vương trả lời.
+
+Không phải câu nàng cần. Nhưng là một câu trả lời. Ông đã nói nó ra, trong một gian phòng không có người ghi.
+
+* * *
 
 "Một nơi không còn tên," nàng nói chậm, "thì trước kia đã có tên."
 
@@ -230,195 +282,269 @@ Không phải lời chối. Không phải lời nhận. Nó giống tập mỏng
 
 "Ai bỏ cái tên ấy đi?"
 
-"Không ai bỏ." Phụ vương dựa đầu vào gối. Mắt khép một nửa. "Người ta chỉ thôi không gọi. Một cái tên gọi mãi không ai thưa, tự nó chết. Không cần ai giết."
+"Không ai bỏ." Phụ vương dựa đầu vào gối. "Người ta thôi không gọi. Một cái tên gọi mãi không ai thưa thì tự chết. Không cần ai giết."
 
 Minh Châu thấy hai tay mình đã nắm lại. Từ lúc nào, nàng không biết. Nàng không mở ra.
 
-"Lương Bá Tứ thưa," nàng nói. "Cả buổi. Từ giờ Ngọ tới giờ Mùi. Nha môn không gọi."
+"Lương Bá Tứ thưa," nàng nói. "Từ giờ Ngọ tới giờ Mùi. Nha môn không gọi."
 
 Phụ vương mở mắt.
 
-"Lúc ra về, ông ấy dừng lại trước cô nương không có hộ tịch. Hỏi: cô nương nhớ tên tiểu nhân không. Cô ấy đọc lại. Tên. Xóm. Bốn mẫu ruộng thấp. Tô thật bốn thạch. Sổ trình tám thạch."
+"Lúc ra về, ông ấy dừng lại trước Tiểu Cẩn. Hỏi: cô nương nhớ tên tiểu nhân không. Tiểu Cẩn đọc lại. Tên. Xóm. Bốn mẫu ruộng thấp. Tô thật bốn thạch."
 
 Nàng dừng lại.
 
-"Ông ấy nói: *cô nương nhớ. Nha môn không nhớ.*"
+"*Cô nương nhớ. Nha môn không nhớ.*"
 
-"Phụ vương nói cái tên tự chết. Nhi thần không thấy thế. Nhi thần thấy có người cầm bút. Đặt bút xuống đúng chỗ phải có cái tên. Rồi nhấc bút lên. Không viết."
+"Phụ vương nói cái tên tự chết. Nhi thần không thấy thế. Nhi thần thấy một vòng tròn bị đục. Dấu đục dày đặc. Không sót một chỗ."
 
-"Như thế không gọi là tự chết."
+Nàng nhìn khối đá.
 
-"Vậy con gọi là gì?"
-
-"Nhi thần chưa biết. Cho nên nhi thần hỏi."
+"Người đục hình giữa thì đục kỹ."
 
 * * *
 
-Hai cha con nhìn nhau.
+Phụ vương ho.
 
-Nàng đã nhìn phụ vương hàng nghìn lần. Qua bậc thềm điện. Qua bàn tiệc. Qua rèm che, khi nàng còn nhỏ và người ngồi trên cao.
+Lần này không dằn xuống được. Cơn ho kéo cả người ông về phía trước. Hai vai rung dưới áo bông. Một bàn tay chống lên mép kỷ, cạnh khối đá.
 
-Chưa bao giờ ở gần thế này. Khi người không có gì che chắn ngoài một tấm chăn bông và một khối đá vỡ.
-
-"Con biết vì sao không ai muốn trả lời câu ấy không?" phụ vương hỏi.
-
-"Vì trả lời thì phải có người ghi."
-
-Khóe miệng phụ vương động. Không hẳn là cười. Dáng một nụ cười. Kiểu người ta khắc lên bia mà không cần nhớ nét mặt thật.
-
-"Ống tre ấy vào Tàng Thư Các gần hai tháng," người nói. "Con thấy ai mở nó chưa?"
-
-Minh Châu không trả lời.
-
-"Ghi chép không giữ được gì, Châu nhi. Nó chỉ chờ. Chờ có người đọc. Mà người đọc phải được cho phép mới qua được cửa."
-
-* * *
-
-Phụ vương nhấc ngón tay khỏi chữ *Thẩm*. Chậm. Như đó là việc nặng nhất người làm từ đầu buổi.
-
-"Câu này," người nói, mắt vẫn trên khối đá, "ta đọc lần đầu năm mười bốn tuổi. Không phải trên đá."
-
-"Ở đâu?"
-
-Phụ vương không trả lời.
-
-Nhưng ánh mắt người rời khối đá. Qua bát thuốc nguội. Qua mép giường. Dừng ở khung cửa sổ phía đông.
-
-Rèm trúc che mất bên ngoài. Minh Châu không cần vén. Hướng ấy, qua hai lớp tường cung, là mái ngói Quốc Tử Giám. Và trong Quốc Tử Giám, trên nền cao nhất, một tòa lầu cửa sổ lúc nào cũng đóng.
-
-"Phần sau của câu ấy," phụ vương nói, "con không tìm thấy trên đá."
-
-"Phụ vương biết nó viết gì."
-
-Không phải câu hỏi. Phụ vương cũng không đáp như đáp một câu hỏi.
-
-"Ta đã đóng một cánh cửa," người nói. "Ta chưa từng ra lệnh đốt thứ gì ở sau nó."
-
-* * *
-
-Rồi phụ vương ho.
-
-Lần này không dằn xuống được. Cơn ho kéo cả người về phía trước. Hai vai rung dưới áo bông. Một bàn tay chống lên mép kỷ, ngay cạnh khối đá.
-
-Minh Châu bước tới. Đỡ lưng. Cầm khăn trên gối kề vào miệng người.
+Minh Châu bước tới. Đỡ lưng. Cầm khăn trên gối kề vào miệng ông.
 
 Khi cơn ho dứt, trên khăn có một vệt đỏ. Không lớn hơn một dấu son.
 
-Nàng gấp khăn lại, để người khỏi thấy.
+Nàng gấp khăn lại, để ông khỏi thấy.
 
-Người thấy. Người không nói gì.
+Ông thấy. Ông không nói gì.
 
-"Để khối đá lại," phụ vương nói, khi đã thở lại được.
+Nàng không lui ra.
+
+* * *
+
+Nàng ngồi xuống chiếc ghế đẩu cạnh giường. Chỗ năm ngoái nàng ngồi đọc sớ.
+
+"Năm mười bốn tuổi," nàng nói, "phụ vương ngồi bên giường tiên vương. Đêm cuối cùng."
+
+Phụ vương không trả lời.
+
+"Sau đêm ấy, ba mươi chín năm, phụ vương chưa từng lên tầng ba Lan Đài. Chưa từng nhìn về góc tây bắc đại sảnh. Chưa từng hỏi vì sao một tấm biển đồng không có chữ."
+
+Nàng dừng lại.
+
+"Đêm ấy tiên vương nói gì với phụ vương?"
+
+* * *
+
+Phụ vương không nhìn nàng.
+
+Mắt ông đi xuống. Không về phía chiếc hòm. Về phía tay phải nàng, đặt trên đầu gối.
+
+Cổ tay nàng.
+
+Ông nhìn chỗ ấy. Chỗ không còn dấu gì.
+
+Tay ông trên mép kỷ động. Nhấc lên một chút. Như sắp đưa ra.
+
+Rồi đặt xuống.
+
+Ông không nắm.
+
+* * *
+
+Minh Châu nhìn bàn tay ấy.
+
+Hai mươi lăm năm, phụ vương chỉ nắm tay nàng một lần. Như người đang rơi nắm lấy một cành cây.
+
+Hôm nay ông không nắm.
+
+Nàng không biết người đang rơi là ông, hay là nàng.
+
+* * *
+
+"Để khối đá lại," phụ vương nói.
 
 "Không."
 
-"Châu nhi."
+"Minh Châu."
 
-"Nếu để lại," Minh Châu nói, rất khẽ, "chiều nay Khởi cư lang sẽ ghi: *đại công chúa vào hầu thuốc. Thượng an.* Rồi khối đá thành một thứ triều đình không hỏi."
+"Nếu để lại," nàng nói, rất khẽ, "nó sẽ vào chiếc hòm kia."
 
-Nàng bọc vải lại. Nút lần này thắt chậm. Tay nàng không còn vững như lúc sáng.
+Lần đầu tiên trong buổi sáng, mắt phụ vương đi về phía chiếc hòm sơn đen.
+
+Rồi trở lại.
+
+Ông không cãi.
+
+* * *
+
+Nàng bọc vải lại. Nút lần này thắt chậm. Ngón tay nàng không còn vững như lúc sáng.
 
 Phụ vương nhìn. Không ngăn.
 
-Khi nàng ôm khối đá lên, người nói. Mắt đã khép.
+Khi nàng ôm khối đá đứng dậy, ông nói.
 
-"Hầm số bảy không phải hầm cuối cùng."
+"Cửa nào trẫm khóa được, trẫm đã khóa."
 
-Minh Châu đứng yên. Chờ câu tiếp theo.
+Minh Châu đứng yên.
 
-Câu tiếp theo không tới. Hơi thở đã chậm lại. Đều. Rít nhẹ ở cuối. Như người vừa thiếp đi.
+Ông không nhìn nàng. Ông nhìn khung cửa sổ phía đông. Rèm trúc che mất bên ngoài.
 
-Hoặc như người muốn được xem là đã thiếp đi.
+Nàng không cần vén rèm. Hướng ấy, qua hai lớp tường cung, là mái ngói Quốc Tử Giám.
 
-Nàng cúi chào một người đang nhắm mắt. Rồi lui ra.
+"Phụ vương—"
+
+"Về đi."
+
+Ông quay mặt vào tường.
+
+Năm ngoái, vai ông run dưới tấm chăn. Không phải ho.
+
+Năm nay vai ông không run. Hơi thở đều. Rít nhẹ ở cuối. Như người đã ngủ.
+
+Hoặc như người muốn được xem là đã ngủ.
+
+Nàng cúi chào một người đang quay mặt vào tường. Rồi lui ra.
 
 * * *
 
-Khởi cư lang đứng ngoài hành lang, cạnh cột thứ ba. Nghiên mực đặt trên lan can. Tờ giấy trải trên tấm ván nhỏ tựa vào cánh tay.
+Khởi cư lang đứng dưới hiên, cạnh cột thứ ba. Nghiên mực đặt trên lan can. Một tờ giấy trải trên tấm ván nhỏ.
 
-Thấy nàng, ông ta cúi người.
+Thấy nàng, lão cúi đầu. Thấp hơn mọi khi một chút.
 
-"Ông đã ghi gì?"
-
-Ông ta ngập ngừng. Rồi đưa tờ giấy ra. Một dòng. Chữ khải. Đều. Mực còn ướt.
+Trên tờ giấy chỉ có một dòng. Chữ khải. Đều. Mực còn ướt.
 
 *Mùng mười tháng Tám. Giờ Thìn. Đại công chúa vào thăm bệnh. Thượng an.*
 
-Minh Châu đọc hai lần.
+Minh Châu đọc. Rồi nhìn lão.
 
-Tập mỏng của Hạ Thanh ít ra còn có ba dòng.
+"Đại nhân có đếm không?"
 
-"Ông có một cuốn sổ trắng," nàng nói. "Những gì không phải là lời."
+Lão quan tóc bạc không trả lời ngay. Lão nhìn tờ giấy. Rồi nhìn bọc vải trong tay nàng.
 
-Khởi cư lang nhìn xuống tờ giấy trong tay. Rất lâu.
+"Lão thần đứng ngoài hiên," lão nói. "Không nghe được lời."
 
-"Bẩm điện hạ," ông ta nói. Chậm. Như đọc một điều lệ. "Sổ trắng ghi những gì thần thấy. Hôm nay thần không được ngồi chỗ thấy."
+Lão dừng lại.
 
-"Bổn cung không hỏi chỗ ông ngồi. Bổn cung hỏi ông."
+"Bốn tiếng. Tiếng thứ tư dài."
 
-Ông ta ngẩng lên.
+Minh Châu không nói gì.
 
-Trong một khắc, nàng thấy trên mặt ông ta một thứ nàng đã đọc trong nét chữ nghiêng phải của Hạ Thanh. Mặt của một người biết rõ mình nên viết gì. Và biết rõ mình sẽ không được viết.
+"Tiếng ho không phải là lời," lão nói. "Sổ Khởi cư không ghi."
 
-"Thần nghe Thượng ho," ông ta nói. "Lệ không ghi tiếng ho."
-
-Ông ta cuộn tờ giấy. Cúi chào. Đi về phía Lan Đài.
+Lão cuộn tờ giấy. Cúi chào. Đi.
 
 * * *
 
-Minh Châu đứng một mình trên hành lang. Khối đá ôm trước ngực. Áo vải xám.
+Minh Châu đứng một mình dưới hiên Văn Hoa điện. Khối đá ôm trước ngực. Áo vải xám.
 
-Hôm mùng sáu nàng đứng như thế này, cuối sân Kinh Triệu phủ. Giữ mình lại.
+Hôm mùng sáu, nàng đứng cuối sân Kinh Triệu phủ trong chiếc áo này. Giữ mình lại.
 
 Hôm nay nàng đã bước ra.
 
-Bên kia hai lớp tường cung, mái ngói Quốc Tử Giám bắt nắng. Tòa lầu trên nền cao vẫn đóng kín mọi cửa sổ. Như mọi ngày. Suốt những năm nàng lớn lên mà chưa từng hỏi vì sao.
+Bên kia hai lớp tường cung, mái ngói Quốc Tử Giám đã bắt nắng.
 
 * * *
 
-Đêm ấy, nàng viết vào sổ.
+Ở đầu hành lang, mẫu hậu đứng đợi.
 
-Không như mọi khi. Nàng viết theo cách Hạ Thanh viết. Nét nhanh. Ghi cả những gì không phải là lời.
+Bà không hỏi phụ vương đã nói gì. Bà nhìn bọc vải. Rồi nhìn cổ tay con gái, chỗ vải bố cọ vào.
 
-*Mùng mười tháng Tám. Giờ Thìn. Tẩm điện. Khởi cư lang bị cho lui. Không ghi.*
+Năm ngoái, bà vén tay áo nàng lên. Đặt năm ngón tay mình lên năm vết tím. Không khớp.
 
-*Bổn cung hỏi: hầm số bảy nằm trên đất của ai.*
+Hôm nay không có vết nào để đặt.
 
-*Phụ vương im chừng một bát thuốc nguội. Rồi đáp: của một nơi không còn tên. Nói một lần. Giọng không thấp hơn. Tay đặt trên chữ Thẩm, không nhấc ra.*
+Bà đưa tay ra. Chỉnh lại góc vải bố trên khối đá, cho nó không cọ vào da nữa.
 
-*Phụ vương nói: một cái tên gọi mãi không ai thưa, tự nó chết.*
+"Đá nặng," bà nói. "Con ôm sát vào người."
 
-*Phụ vương nói: câu ấy ta đọc năm mười bốn tuổi. Không phải trên đá. Mắt nhìn về phía đông.*
+Rồi bà đi vào Văn Hoa điện. Về phía chiếc giường hẹp. Về phía hộp ấn rồng.
 
-*Phụ vương nói: ta đã đóng một cánh cửa. Ta chưa từng ra lệnh đốt thứ gì ở sau nó.*
+* * *
 
-*Phụ vương nói: hầm số bảy không phải hầm cuối cùng.*
+Đêm.
+
+Tầng hai Lan Đài. Gian đọc sách sát cửa sổ phía nam.
+
+A Nhu bưng nước vào. Đặt chậu xuống. Rồi nhìn hai bàn tay nàng.
+
+Trong lòng mỗi bàn tay có bốn vết móng. Hình trăng non. Đỏ.
+
+A Nhu không hỏi. Nàng ấy đi lấy lọ thuốc mỡ. Quỳ xuống. Bôi lên từng vết. Nhẹ. Như năm ngoái bôi lên cổ tay.
+
+Minh Châu để yên.
+
+Năm ngoái là năm vết. Của một người khác.
+
+Năm nay là tám vết. Của chính nàng.
+
+Đèn lồng treo trên xà vẫn chưa thắp. Nàng thắp ngọn đèn dầu trên bàn.
+
+Trăng mùng mười đã ngả về tây. Khối đá nằm trên bàn, không bọc. Ánh đèn đi vào những vết đục bên trong đường cong. Dày đặc. Kỹ.
+
+Nàng mở cuốn sổ trắng của Khởi cư lang trước.
+
+*Mùng mười tháng Tám. Văn Hoa điện.*
+
+*Phụ vương không hỏi đá từ đâu. Đọc ba chữ. Dừng đúng chỗ đá vỡ.*
+
+*Ngón tay đặt trên chữ thẩm. Không nhấc ra.*
+
+*Trả lời không nhìn chiếc hòm.*
 
 *Ho ra máu một lần. Khăn đã gấp.*
 
-Nàng dừng bút.
+*Nhìn cổ tay ta. Tay nhấc lên. Đặt xuống. Không nắm.*
 
-Bấc đèn nổ một tiếng nhỏ.
+*Nhìn về phía đông.*
 
-Rồi nàng viết dòng nàng biết mình sẽ phải viết, từ lúc rời tẩm điện.
+*Bốn tiếng ho. Tiếng thứ tư dài. (Khởi cư lang đếm.)*
 
-*Phụ vương có thể đã nói ra cái tên ấy. Phụ vương không nói.*
+Nàng gấp sổ trắng lại.
+
+* * *
+
+Rồi nàng mở cuốn sổ bìa vải xanh.
+
+Ngay dưới dòng buổi sáng.
+
+*Ta hỏi: hầm số bảy nằm trên đất của ai.*
+
+*Phụ vương nói: của một nơi không còn tên.*
+
+*Phụ vương nói: một cái tên gọi mãi không ai thưa thì tự chết.*
+
+*Phụ vương nói: cửa nào trẫm khóa được, trẫm đã khóa.*
+
+Nàng dừng bút. Bấc đèn nổ một tiếng nhỏ.
+
+Năm ngoái, ở trang hai mươi tháng Tám, nàng viết *chưa từng*. Nàng biết hai chữ ấy là gì.
+
+Đêm nay nàng viết:
+
+*Không dối.*
+
+Rồi, chữ nhỏ hơn:
+
+*Không nói hết.*
+
+* * *
 
 Bên dưới, nàng để trống nửa dòng.
 
 Không phải vì không biết viết gì. Chỗ ấy thuộc về một nơi khác. Một cái tên đã lâu không ai gọi.
 
+Nàng nhìn nửa dòng trống ấy. Như Hạ Thanh đã nhìn chỗ Tiểu Cẩn dừng lại.
+
 * * *
 
-Trang trước vẫn còn dòng đêm qua.
+Trang trước vẫn còn dòng của đêm qua.
 
 *Bổn cung chưa từng vào Tàng Thư Các.*
 
-Minh Châu nhìn dòng ấy rất lâu.
+Minh Châu nhìn dòng ấy. Ngọn đèn dầu ngắn đi một đốt bấc.
 
-Rồi lật sang trang mới. Chấm mực. Viết.
+Rồi nàng cầm bút. Gạch một chữ.
 
-*Ngày mai.*
+*Bổn cung chưa ~~từng~~ vào Tàng Thư Các.*
 
 *(Hết chương 100)*
 
