@@ -250,7 +250,7 @@ Không mời nàng ngồi ghế trên.
 
 Ông ta lật một trang.
 
-"Trong Văn hệ có một phần nhỏ. Hệ khảo cứu. Không thi ra làm quan. Đọc. Chép. Đối chiếu. Giữ sách. Mỗi năm nhận không quá mười người. Năm nay nhận bảy."
+"Trong Văn hệ có một phần nhỏ. Hệ khảo cứu. Đọc. Chép. Đối chiếu. Giữ sách. Không ra làm quan. Ai muốn vẫn được dự Đình thí, đỗ thì khắc tên lên bia, rồi ở lại giám. Mỗi năm nhận không quá mười người. Năm nay nhận bảy."
 
 Ông ta ngẩng lên.
 
