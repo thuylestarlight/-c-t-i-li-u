@@ -284,6 +284,10 @@ Nàng biết sổ không nói. Người chép sổ không viết điều ngườ
 
 Tờ thứ bảy.
 
+*Tháng Ba. Mười một. Giờ Hợi. Lửa.*
+
+Một chữ. Không nói lửa ở đâu. Không nói ai đốt. Nàng không hiểu. Nàng đọc tiếp.
+
 *Tháng Ba. Mười một. Đêm. Đạo tây bắc: cổng thành hồ mở. Vào. Không phá cổng.*
 
 Minh Châu dừng tay.

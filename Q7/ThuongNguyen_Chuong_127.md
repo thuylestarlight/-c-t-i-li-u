@@ -98,6 +98,8 @@ Một lời hứa không có người hứa.
 
 *Thủ thư đưa ta chìa cổng nước. Chìa sắt. Dài bằng gang tay.*
 
+*Thủ thư nói: tờ giấy viết thêm một dòng, dưới năm dòng. Thấy lửa trên núi bắc thì mở. Thủ thư không đưa ta đọc dòng ấy. Thủ thư nói.*
+
 *Thủ thư nói: ta là thủ thư. Tên ta có trong danh sách. Ta mở thì không ai giữ. Ngươi không có trong danh sách. Ngươi mở.*
 
 *Ta hỏi: sao thủ thư biết ta không có trong danh sách.*
@@ -114,7 +116,9 @@ Minh Châu lật trang.
 
 * * *
 
-*Đêm mười một tháng Ba. Giờ Tý. Ta mở cổng nước.*
+*Đêm mười một tháng Ba. Gần hết giờ Hợi. Trên núi bắc có một đốm lửa. Nhỏ. Rồi to.*
+
+*Giờ Tý. Ta mở cổng nước.*
 
 *Cổng nước không có then. Có khóa. Ta tra chìa. Xoay hai vòng. Đẩy.*
 
