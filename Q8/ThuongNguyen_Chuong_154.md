@@ -74,6 +74,8 @@ Minh Châu đi qua. Dừng lại.
 
 Dưới gốc hòe lớn nhất, Tiểu Cẩn ngồi sau tấm ván. Không ngẩng lên. Ngón tay gõ khẽ lên mép ván. Một lần.
 
+Minh Châu đi qua gốc hòe. Không dừng. Ba trăm người dưới tán lá. Một nồi cháo chung. Một gói muối đã hết từ hôm kia.
+
 * * *
 
 Phượng Nghi điện. Giờ Thân.

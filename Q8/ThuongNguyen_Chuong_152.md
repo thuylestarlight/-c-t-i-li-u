@@ -326,7 +326,7 @@ Minh Châu đứng ở hiên Minh Luân đường. Cách cổng giám bốn mư�
 
 Nàng nghe được nửa câu. Giọng một người con gái. Khẽ. Từ sau rèm.
 
-"…chín tờ ấy, chàng có đọc trước khi gửi không?"
+"…chín tờ ấy, đệ có đọc trước khi gửi không?"
 
 * * *
 
@@ -338,7 +338,7 @@ Rồi hắn nói. Nàng nghe được trọn. Gió mang tới.
 
 Rèm kiệu không động.
 
-"Ta giữ nhà nàng ra ngoài," hắn nói.
+"Ta giữ nhà muội ra ngoài," hắn nói.
 
 * * *
 
@@ -356,7 +356,7 @@ Y không ghi chiếc kiệu rèm đỏ gấm. Kiệu không vào cổng.
 
 Minh Châu đứng ở hiên Minh Luân đường. Lâu.
 
-*Ta giữ nhà nàng ra ngoài.*
+*Ta giữ nhà muội ra ngoài.*
 
 Mọi chữ đều đúng.
 
@@ -364,11 +364,11 @@ Hắn đã đọc bốn mươi bảy tờ. Hắn không gửi trang có tên Tư
 
 Nửa kia hắn không nói với người sau rèm.
 
-Hắn không nói: hắn giữ nhà nàng ra ngoài để nhà nàng không phải im khi ba nhà kia hỏi. Để nhà nàng đứng nhìn. Để nhà nàng có thể đứng về phía người hỏi cuối cùng.
+Hắn không nói: hắn giữ nhà nàng ấy ra ngoài để nhà nàng ấy không phải im khi ba nhà kia hỏi. Để nhà nàng ấy đứng nhìn. Để nhà nàng ấy có thể đứng về phía người hỏi cuối cùng.
 
 Hắn không nói: tháng Bảy, hắn muốn bốn mươi bảy tờ được đọc trọn. Kể cả trang có tên Tư Mã.
 
-Hắn không nói: cái ngày nhà nàng không còn đứng ngoài, là ngày hắn chọn.
+Hắn không nói: cái ngày nhà nàng ấy không còn đứng ngoài, là ngày hắn chọn.
 
 * * *
 
@@ -394,9 +394,9 @@ Nàng dừng bút.
 
 *Giờ Tuất. Kiệu rèm đỏ gấm ở cổng giám. Trâm bạc đơn giản.*
 
-*Ẩn Chi: chín tờ ấy, chàng có đọc trước khi gửi không.*
+*Ẩn Chi: chín tờ ấy, đệ có đọc trước khi gửi không.*
 
-*Nhị đệ: ta có đọc. Ta không gửi trang có tên Tư Mã. Ta giữ nhà nàng ra ngoài.*
+*Nhị đệ: ta có đọc. Ta không gửi trang có tên Tư Mã. Ta giữ nhà muội ra ngoài.*
 
 Nàng nhìn ba dòng ấy.
 

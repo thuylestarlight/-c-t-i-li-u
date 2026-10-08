@@ -238,7 +238,7 @@ Rồi ông nhìn hộp ấn mở.
 
 "Bổn cung đổi hai mươi ba điền trang lấy một tiếng," mẫu hậu nói. "Năm kia, bổn cung đổi thuế của hai mươi ba điền trang ấy lấy một cái tên gạch son trong danh sách tuyển phi. Huynh trưởng nhớ."
 
-"Ta nhớ," Cẩn Ngôn nói. "Chi nhi bị nhốt ba tháng sau đó."
+"Ta nhớ," Cẩn Ngôn nói. "Chi nhi bị cấm túc gần một năm sau đó."
 
 * * *
 
