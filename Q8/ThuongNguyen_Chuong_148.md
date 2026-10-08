@@ -200,7 +200,7 @@ Từ phía nam, không phải từ cổng thành. Từ con đường vòng qua c
 
 Nàng biết dáng người ấy. Ở Thiết Thành, năm trước, trong sảnh chính phủ Châu Mục, người ấy bước ra khỏi nhóm mười người. Cúi chào Hàn Sách. *Phụ thân gửi lời thăm hỏi. Thiết Châu gặp thiên tai.*
 
-Diệp Lâm. Người nhà Tư Mã.
+Tư Mã Diệp Lâm. Trưởng nam Cẩm Châu Mục. Năm kia, mẫu hậu từng định gả nàng cho y, để y làm Châu Mục Cẩm Châu.
 
 * * *
 
@@ -218,7 +218,7 @@ Rồi nàng dừng bút.
 
 Nàng viết thêm một dòng. Không xóa.
 
-*Không ai là Châu Mục. Năm người con.*
+*Bốn kỵ không ai là Châu Mục. Cùng Trung Châu Mục, năm người con.*
 
 * * *
 
@@ -360,7 +360,7 @@ Y đứng cạnh nàng ở lan can. Nhìn ra đồng. Tối dần. Ở phía b�
 
 Nàng đọc. Từng dòng. Không thêm.
 
-Tới dòng *Không ai là Châu Mục. Năm người con.*, y dừng nàng lại.
+Tới dòng *Bốn kỵ không ai là Châu Mục. Cùng Trung Châu Mục, năm người con.*, y dừng nàng lại.
 
 "Ghi đúng," y nói.
 
