@@ -58,7 +58,7 @@ Cung nữ già đứng cầm hộp phượng quan. Mẫu hậu không nhìn hộ
 
 * * *
 
-Minh Châu mặc áo lệnh sử. Trắng. Đai đen. Ấn lệnh sử bằng đồng ở đai. Lần đầu tiên từ ngày mười tám tháng Tư nàng đeo ấn ấy ra khỏi phòng.
+Minh Châu mặc áo lệnh sử. Trắng. Đai đen. Ấn lệnh sử bằng đồng ở đai. Lần đầu tiên từ ngày mười chín tháng Tư nàng đeo ấn ấy ra khỏi phòng.
 
 Ba tháng nàng ngồi sau bình phong. Hôm nay không có bình phong.
 
@@ -122,7 +122,7 @@ Cạnh Khởi cư lang, một người già nữa. Áo xanh cũ. Hai tay đặt 
 
 Minh Châu không biết vì sao ông ở đây. Rồi nàng biết. Hộp gỗ dài. Khóa đồng. Niêm sáp Lễ Bộ.
 
-Hạ tầng Lan Đài có một người giữ. Ba mươi năm. Thứ gì ra khỏi hạ tầng thì người giữ phải đi theo.
+Hạ tầng Tàng Thư Các có một người giữ chìa. Giám quy năm lập quốc: thủ thư chưởng thược. Không thuộc Lan Đài. Không thuộc Lễ Bộ. Thứ gì ra khỏi hạ tầng thì người giữ chìa phải đi theo.
 
 * * *
 
@@ -450,7 +450,7 @@ Cả sảnh quay về phía án.
 
 Ông dừng lại.
 
-"Mũi tên bắn vào thành hồ dặn: *sách giữ, nhà ngươi giữ.* Vua đời thứ nhất giữ lời. Sách về Lan Đài. Nhà lão hủ theo sách. Giữ sổ ở Lan Đài từ năm thứ nhất."
+"Mũi tên bắn vào thành hồ dặn: *sách giữ, nhà ngươi giữ.* Vua đời thứ nhất giữ lời. Sách về Hạo Kinh. Tàng Thư Các dựng quanh sách. Nhà lão hủ theo sách. Giữ chìa từ năm thứ nhất."
 
 Ông đặt cây nến xuống án. Cạnh tờ chiếu.
 
