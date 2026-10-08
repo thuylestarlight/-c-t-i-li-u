@@ -262,7 +262,7 @@ Cẩn Ngôn tới. Một mình. Không người hầu theo vào gian chính.
 
 Ông cúi chào mẫu hậu. Đúng lễ của Châu Mục trước Vương hậu.
 
-Rồi ông ngồi xuống. Không đúng lễ nào. Ngồi như người anh ngồi trước em gái.
+Rồi ông ngồi xuống. Không đúng lễ nào. Ngồi như huynh trưởng ngồi trước muội muội.
 
 "Muội," ông nói.
 

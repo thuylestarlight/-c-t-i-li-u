@@ -98,7 +98,7 @@ Mẫu hậu rót trà vào chén thứ hai. Trà Cẩm Châu.
 
 Cẩn Ngôn tới lúc giờ Tỵ ba khắc.
 
-Một mình. Áo gấm đỏ. Ông không cúi chào ở cửa. Ông đi thẳng tới án thấp. Ngồi xuống đối diện em gái. Như tháng Tư. Như người anh ngồi trước em gái ở một gian nhà ở Cẩm Châu, bốn mươi năm trước.
+Một mình. Áo gấm đỏ. Ông không cúi chào ở cửa. Ông đi thẳng tới án thấp. Ngồi xuống đối diện muội muội. Như tháng Tư. Như huynh trưởng ngồi trước muội muội ở một gian nhà ở Cẩm Châu, bốn mươi năm trước.
 
 "Muội," ông nói.
 
@@ -136,7 +136,7 @@ Ngòi bút nàng dừng ở chữ *ấn*. Một chấm mực nhỏ. Không loang
 
 "Hành tẩu nói gì với huynh trưởng?" mẫu hậu hỏi.
 
-Cẩn Ngôn nhìn em gái.
+Cẩn Ngôn nhìn muội muội.
 
 "Hành tẩu là con muội," ông nói. "Muội không hỏi con muội. Muội hỏi ta."
 
@@ -180,7 +180,7 @@ Mẫu hậu đặt chén trà xuống.
 
 "Người ngồi trên ngai sau ngày mười tháng Bảy," bà nói. "Huynh trưởng nghĩ là ai?"
 
-Cẩn Ngôn nhìn em gái.
+Cẩn Ngôn nhìn muội muội.
 
 "Thái tử không ngồi xuống," ông nói. "Thái tử nói *không chắc là sự thật* trước hai trăm người. Thái tử biết. Ngũ Châu biết Thái tử biết. Nếu vương rời ngai vì biết mà không nói, thì người biết mà không nói cũng không ngồi được."
 
@@ -262,7 +262,7 @@ Hôm nay Ẩn Chi ở trong một chiếc kiệu rèm đỏ gấm. Hỏi vị h�
 
 "Hôn ước giữ nguyên," mẫu hậu nói. "Tháng Chín. Đúng ngày. Bổn cung đóng ấn hôn ước ấy. Bổn cung không rút."
 
-Cẩn Ngôn nhìn em gái.
+Cẩn Ngôn nhìn muội muội.
 
 "Muội giữ hôn ước của con muội với con gái ta," ông nói. "Để con muội không có lý do giận ta khi ta bỏ tiếng *ở lại*."
 
@@ -288,7 +288,7 @@ Bà cầm ấn rồng lên khỏi hộp. Hai tay. Ấn nặng. Ngọc vàng.
 
 "Huynh trưởng đồng ý?"
 
-Cẩn Ngôn nhìn ấn rồng trong tay em gái.
+Cẩn Ngôn nhìn ấn rồng trong tay muội muội.
 
 "Phụ vương chưa chuẩn," ông nói.
 
