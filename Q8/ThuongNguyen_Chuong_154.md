@@ -38,7 +38,7 @@ Trên vọng lâu, người lính già đứng đếm người ở ngoài. Xuố
 
 Minh Châu ngồi yên.
 
-Hai mươi ba điền trang. Từ hai mươi tám tháng Sáu, là đất Cẩm Châu. Từ hai mươi tám tháng Sáu, kho nghĩa thương cờ vàng nhạt không còn gạo.
+Hai mươi ba điền trang. Từ hai mươi tám tháng Sáu, là đất Cẩm Châu. Từ hôm kia, kho nghĩa thương cờ vàng nhạt không còn gạo.
 
 Nhị đệ không còn gạo để phát.
 
@@ -319,6 +319,10 @@ Rồi y nói. Không phải lời của Sóc Châu Mục.
 Mặc Hàn nhìn bà. Lâu.
 
 Rồi y cúi chào. Thấp hơn lần trước. Không đúng lễ nào.
+
+Ở cửa, y dừng. Không quay lại.
+
+"Giàn gần nhất là của tiền quân," y nói. "Tiền quân là đồn bắc."
 
 Y đi.
 

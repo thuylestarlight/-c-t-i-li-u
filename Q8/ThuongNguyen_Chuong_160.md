@@ -164,7 +164,7 @@ Không phải chữ *có*. Ông không cần chữ ấy. Ông nói *người ra 
 
 Ông nhìn năm hàng ghế. Từng hàng.
 
-"Không trả lời là cách trẫm giữ. Tiên vương giữ như thế. Tiên vương của tiên vương giữ như thế. Sáu đời."
+"Không trả lời là cách trẫm giữ. Tiên vương giữ như thế. Tiên vương của tiên vương giữ như thế. Năm đời."
 
 "Trẫm sai ở chỗ ấy."
 
@@ -420,7 +420,7 @@ Phụ vương ngồi trên ghế gỗ thường. Tay trên đầu gậy. Không 
 
 Ông giơ tay. Âu Dương tiên sinh đứng dậy. Mang hộp gỗ dài tới án giữa sảnh.
 
-Lễ Bộ hành tẩu mang tới một hộp nữa. Nhị đệ. Y đi từ cửa sảnh. Hai tay ôm. Hộp gỗ vuông. Niêm sáp Lễ Bộ.
+Lễ Bộ hành tẩu mang tới một hộp nữa. Nhị đệ. Hắn đi từ cửa sảnh. Hai tay ôm. Hộp gỗ vuông. Niêm sáp Lễ Bộ.
 
 Bốn mươi bảy tờ.
 
@@ -436,7 +436,7 @@ Trên nút, nến đỏ nhỏ xuống. Sáp nóng.
 
 "Trẫm đóng trước," phụ vương nói.
 
-Ông không đứng dậy. Nội thị mang ấn rồng tới. Ông cầm. Tay run. Đóng. Con rồng bốn móng trên sáp đỏ.
+Ông không đứng dậy. Nội thị mang ấn rồng tới. Ông cầm. Tay run. Đóng. Con rồng năm móng trên sáp đỏ.
 
 "Các ngài đóng," ông nói. "Có son."
 
@@ -516,7 +516,7 @@ Mẫu hậu đứng dậy. Không đỡ ông. Đứng cạnh.
 
 Ở cửa sảnh, nhị đệ cúi chào. Đúng lễ.
 
-Phụ vương dừng lại trước y.
+Phụ vương dừng lại trước hắn.
 
 Ông nói một câu. Khẽ. Minh Châu không nghe. Không ai nghe. Chỉ thấy nhị đệ ngẩng lên. Rồi cúi xuống. Lâu hơn lễ.
 
@@ -654,11 +654,11 @@ Phượng Nghi điện.
 
 Lễ Bộ hành tẩu tới. Một mình. Mang một tờ giấy. Không phải chiếu. Không phải nghi chú.
 
-Nhị đệ không vào gian chính. Y đứng ở cửa. Như Hạ Thanh.
+Nhị đệ không vào gian chính. Hắn đứng ở cửa. Như Hạ Thanh.
 
-"Đại tỷ," y nói. "Sáng nay bốn Châu Mục rời kinh. Trước khi đi, Trọng Sơn, Hoài An, Hàn Sách, Cẩn Ngôn để lại một tờ giấy ở Lễ Bộ."
+"Đại tỷ," hắn nói. "Sáng nay bốn Châu Mục rời kinh. Trước khi đi, Trọng Sơn, Hoài An, Hàn Sách, Cẩn Ngôn để lại một tờ giấy ở Lễ Bộ."
 
-Y đưa tờ giấy cho nàng.
+Hắn đưa tờ giấy cho nàng.
 
 Bốn ấn. Có son. Ngựa. Sóng. Búa cuốc. Bông lúa.
 
@@ -690,7 +690,7 @@ Nàng ngẩng lên. Nhìn nhị đệ.
 
 "Bốn châu nói đúng," nhị đệ nói. "Đệ soạn điều chín trong một đêm. Để Cẩm là tiếng thứ tư."
 
-Y nhìn tờ giấy trong tay nàng.
+Hắn nhìn tờ giấy trong tay nàng.
 
 "Bây giờ bốn châu muốn một luật không ai soạn được trong một đêm."
 
@@ -700,29 +700,29 @@ Y nhìn tờ giấy trong tay nàng.
 
 "Lễ Bộ được giao giữ bút," nhị đệ nói. "Thượng thư giao cho đệ. Sáng nay."
 
-Y dừng lại.
+Hắn dừng lại.
 
 "Hôm ấy phụ vương nói với đệ một câu ở cửa sảnh. Đại tỷ không nghe."
 
-"Ta không nghe."
+"Bổn cung không nghe."
 
 "Phụ vương nói: *Con chọn dòng giỏi. Lần sau, viết cả trang.*"
 
 * * *
 
-Nàng nhìn y.
+Nàng nhìn hắn.
 
-Y không mỉm cười. Mặt y không có gì.
+Hắn không mỉm cười. Mặt hắn không có gì.
 
-"Đệ không biết phụ vương khen hay phạt," y nói.
+"Đệ không biết phụ vương khen hay phạt," hắn nói.
 
 "Cả hai," nàng nói.
 
-Y gật đầu. Chậm.
+Hắn gật đầu. Chậm.
 
 "Đệ cũng nghĩ thế."
 
-Y cúi chào. Đúng lễ. Rồi đi.
+Hắn cúi chào. Đúng lễ. Rồi đi.
 
 * * *
 
@@ -758,15 +758,15 @@ Nàng dừng bút.
 
 Nàng nhìn trang giấy lâu.
 
-Rồi nàng lật về trang đầu cuốn sổ. Không phải bản khảo. Bản khảo đã niêm. Cuốn sổ ghi việc từng ngày của nàng. Từ ngày hai mươi tháng Tư.
+Rồi nàng lật về trang đầu cuốn sổ. Không phải bản khảo. Bản khảo đã niêm. Cuốn sổ ghi việc từng ngày của nàng. Từ ngày mười chín tháng Tư.
 
-Trang đầu chỉ có một dòng. Nàng viết dòng ấy ở sau bình phong, khi chưa biết sẽ có gì sau nó.
+Trang đầu chỉ có một dòng. Nàng viết dòng ấy đêm trước ngày đại sảnh mở cửa, khi chưa biết sẽ có gì sau nó.
 
-*Ngũ Châu ngồi. Bệ hạ không ngự.*
+*Chiếu: lệnh sử không vào đại sảnh.*
 
 Nàng lật về trang cuối. Viết dòng cuối.
 
-*Ngũ Châu ngồi. Bệ hạ tự tới. Thương Nguyên không vỡ.*
+*Lệnh sử vào đại sảnh. Bệ hạ tự tới. Thương Nguyên không vỡ.*
 
 Nàng nhìn chữ *không vỡ*.
 

@@ -250,7 +250,7 @@ Năm kia, mẫu hậu nói câu ấy. Nàng nghe ở Phượng Nghi điện. M�
 
 Hôm nay mẫu hậu đặt hai mươi ba điền trang lên bàn trà. Như đặt một quân cờ.
 
-Hôm nay Ẩn Chi ở trong một chiếc kiệu rèm đỏ gấm. Hỏi vị hôn phu: *chàng có đọc trước khi gửi không.*
+Hôm nay Ẩn Chi ở trong một chiếc kiệu rèm đỏ gấm. Hỏi vị hôn phu: *đệ có đọc trước khi gửi không.*
 
 * * *
 

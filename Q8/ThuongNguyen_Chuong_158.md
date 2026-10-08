@@ -192,7 +192,7 @@ Trọng Sơn đứng dậy.
 
 Lễ Bộ Thượng thư quay lại nhìn nhị đệ.
 
-Nhị đệ không nhìn Thượng thư. Y nhìn đại tỷ.
+Nhị đệ không nhìn Thượng thư. Hắn nhìn nàng.
 
 "Điều mười một," Thượng thư nói. Chậm. "Người được gọi không ở dưới chiếu nào của người bị xét."
 
@@ -210,7 +210,7 @@ Giá gỗ cũ. Không cờ. Ở đỉnh, chỗ biển đồng từng treo, bốn
 
 Nàng đứng cạnh nó.
 
-Không có giấy trong tay. Bốn mươi bảy tờ ở Lễ Bộ. Niêm sáp.
+Không có giấy trong tay. Bốn mươi bảy tờ ở Lan Đài, tầng ba. Niêm sáp Lễ Bộ.
 
 *Người viết thì nhớ.*
 
@@ -262,7 +262,7 @@ Nàng nghe tiếng mẫu hậu thở. Sau lưng. Một lần. Dài.
 
 "Người ra lệnh là Vệ La," nàng nói. "Bổn cung viết dòng ấy trong bản khảo. Bằng tay mình. Bổn cung họ Vệ La."
 
-"Ba nhà nhận chín tờ đã đọc dòng ấy. Ba nhà nhận chín tờ chưa đọc dòng sau."
+"Ba nhà nhận chín tờ đã đọc dòng ấy. Ba nhà nhận chín tờ đã đọc cả dòng sau. Chưa nhà nào nói nó ra."
 
 * * *
 
@@ -294,7 +294,7 @@ Nàng dừng lại.
 
 Nàng biết mình đang đứng ở đâu. Ở chỗ cuối cùng còn quay lại được.
 
-Nếu nàng dừng ở đây, *bốn ấn khô* là bốn ấn không tên. Năm hàng ghế sẽ đoán. Mỗi nhà đoán ba ấn của ba nhà kia. Không nhà nào đoán ấn của mình.
+Nếu nàng dừng ở đây, *bốn ấn khô* vẫn chỉ là bốn chữ *đoán* trong mấy tờ giấy mỗi nhà đọc một mình. Mỗi nhà đọc ba ấn của ba nhà kia. Không nhà nào đọc to ấn của mình.
 
 Nàng nghĩ tới giàn gỗ thông trên mỏm đất. Đá lửa trong tay một người. Ba nhịp.
 
@@ -514,7 +514,7 @@ Tay không run. Nàng biết tay sẽ run tối nay. Khi viết. Không phải b
 
 "Bổn cung khai phần của bổn cung," nàng nói.
 
-"Mùng ba tháng Mười Một năm trước, bổn cung viết dòng đầu bản khảo. Tới tháng Ba năm nay, bổn cung viết đủ bốn mươi bảy tờ. Bổn cung không trình."
+"Mùng ba tháng Mười Một năm trước, bổn cung viết dòng đầu bản khảo. Tới cuối tháng Hai năm nay, bổn cung viết đủ bốn mươi bảy tờ. Bổn cung không trình."
 
 "Bổn cung không trình vì bổn cung sợ. Sợ Thương Nguyên vỡ. Sợ phụ vương. Sợ những gì người ta sẽ làm với tờ thứ mười hai."
 
@@ -570,11 +570,11 @@ Sau Lễ Bộ Thượng thư, nhị đệ đứng.
 
 Hai tay vẫn chắp trước bụng.
 
-Nàng nhìn y.
+Nàng nhìn hắn.
 
-Bốn tháng y chọn dòng. Chín tờ cho ba nhà. Bốn tờ cho cữu cữu. Một nghi chú mười hai điều. Một điều chín. Một điều mười một.
+Bốn tháng hắn chọn dòng. Chín tờ cho ba nhà. Bốn tờ cho cữu cữu. Một nghi chú mười hai điều. Một điều chín. Một điều mười một.
 
-Bốn tháng y giữ bí mật trong tay như giữ một thanh kiếm. Cầm chuôi. Mũi chĩa ra ngoài. Mỗi nhà chỉ thấy lưỡi kiếm chĩa vào nhà khác.
+Bốn tháng hắn giữ bí mật trong tay như giữ một thanh kiếm. Cầm chuôi. Mũi chĩa ra ngoài. Mỗi nhà chỉ thấy lưỡi kiếm chĩa vào nhà khác.
 
 Hôm nay nàng đặt cả thanh kiếm lên án. Cạnh tờ chiếu. Mũi chĩa vào năm hàng ghế. Cùng một lúc.
 
@@ -584,9 +584,9 @@ Một thanh kiếm chĩa vào tất cả thì không ai cầm được.
 
 Nhị đệ không nhìn đi chỗ khác.
 
-Y nhìn đại tỷ lâu. Mặt y không có gì. Không mỉm cười. Không nhíu mày.
+Hắn nhìn nàng lâu. Mặt hắn không có gì. Không mỉm cười. Không nhíu mày.
 
-Rồi y làm một việc nhỏ. Y tháo hai tay đang chắp. Buông xuống. Hai bên người.
+Rồi hắn làm một việc nhỏ. Hắn tháo hai tay đang chắp. Buông xuống. Hai bên người.
 
 Như hoàng huynh đứng giữa đồng hôm mùng tám.
 

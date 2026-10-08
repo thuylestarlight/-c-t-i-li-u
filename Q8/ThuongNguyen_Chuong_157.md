@@ -210,7 +210,7 @@ Y ngồi xuống. Cách nàng một tầm tay. Lưng cũng tựa vào giàn.
 
 "Huynh trưởng nói gì?"
 
-"Ta hỏi một câu. Vương hậu không trả lời. Rồi lúc ra cửa ta nói một câu. Không phải hỏi."
+"Ta nói lời của phụ thân. Vương hậu trả lời lời của phụ thân. Rồi lúc ra cửa ta nói một câu. Không phải lời của phụ thân."
 
 Y dừng lại.
 
@@ -298,23 +298,23 @@ Thằng bé im.
 
 Nó không đi. Nó đứng đó. Nhìn giàn.
 
-"Kỵ úy," nó nói. "Mẹ tiểu nhân kể. Bà cố của tiểu nhân được một nhà Đạm Thai nuôi. Từ phía nam. Không nói được tiếng Sóc. Lớn lên giặt áo trong doanh trại."
+"Kỵ úy," nó nói. "Mẹ tiểu nhân kể. Bà tổ của tiểu nhân được một nhà Đạm Thai nuôi. Từ phía nam. Không nói được tiếng Sóc. Lớn lên giặt áo trong doanh trại."
 
 Nàng không động.
 
-"Tiểu nhân không biết chữ," nó nói. "Người trong đội nói, có một cuốn sổ ghi tên những người như bà cố. Lệnh sử giữ."
+"Tiểu nhân không biết chữ," nó nói. "Người trong đội nói, có một cuốn sổ ghi tên những người như bà tổ. Lệnh sử giữ."
 
 "Ừ."
 
-"Trong sổ ấy có tên bà cố tiểu nhân không?"
+"Trong sổ ấy có tên bà tổ tiểu nhân không?"
 
 Tuyết Ly nhìn thằng bé.
 
 Hai tờ. Dòng *Đạm Thai nhận: bảy.* Bảy cái tên. Nàng đã không đọc to bảy tên ấy trước ba nghìn người ở đồn bắc. Nàng đã đọc thầm. Một lần. Rồi nhớ.
 
-"Có thể," nàng nói. "Ta không biết tên bà cố ngươi."
+"Có thể," nàng nói. "Ta không biết tên bà tổ ngươi."
 
-"Mẹ tiểu nhân cũng không biết," Cương nói. "Bà cố không nhớ tên mình. Người ta gọi bà là *con bé phía nam.*"
+"Mẹ tiểu nhân cũng không biết," Cương nói. "Bà tổ không nhớ tên mình. Người ta gọi bà là *con bé phía nam.*"
 
 Nó cúi chào. Rồi đi xuống.
 

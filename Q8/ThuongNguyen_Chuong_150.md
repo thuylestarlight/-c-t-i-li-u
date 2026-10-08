@@ -224,7 +224,7 @@ Nét chữ ở tờ này không đều. Có chỗ mực đậm. Có chỗ bút �
 
 * * *
 
-*Mười lăm tháng Sáu. Hai mươi tư đội đóng trại cách cổng Bắc một tầm tên. Phó chỉ huy Đạm Thai Bá đứng trên tường. Thần thấy giáp cấm quân. Thần biết là đường huynh.*
+*Mười lăm tháng Sáu. Hai mươi tư đội đóng trại cách cổng Bắc một tầm tên. Phó chỉ huy Đạm Thai Bá đứng trên tường. Trinh sát báo: giáp cấm quân, cờ phó chỉ huy. Thần biết là đường huynh.*
 
 *Sáu đội ở lại trại cũ. Hai mươi dặm. Cùng thần.*
 
@@ -240,7 +240,7 @@ Nét chữ ở tờ này không đều. Có chỗ mực đậm. Có chỗ bút �
 
 *Thần không biết lần sau phụ thân ra lệnh gì. Thần biết lần sau phụ thân sẽ không gửi qua thần.*
 
-*Thần không xin lệnh sử điều gì. Lệnh sử đã giữ lời. Lệnh sử báo trước chín ngày. Thần dùng chín ngày ấy để đọc.*
+*Thần không xin lệnh sử điều gì. Lệnh sử đã giữ lời. Lệnh sử báo trước chín ngày. Thần dùng chín ngày ấy để chuẩn bị đọc.*
 
 *Tuyết Ly.*
 

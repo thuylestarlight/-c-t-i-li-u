@@ -302,7 +302,7 @@ Y đã sống theo nó trước khi biết.
 
 * * *
 
-"Bổn cung có một tin," nàng nói.
+"Ta có một tin," nàng nói.
 
 Y chờ.
 
@@ -342,7 +342,7 @@ Rồi y đọc lại câu thứ ba.
 
 "Ai dạy?"
 
-"Bổn cung không biết," nàng nói.
+"Ta không biết," nàng nói.
 
 Nàng nhìn ba câu.
 

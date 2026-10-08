@@ -266,7 +266,9 @@ Lính đọc lửa.
 
 Minh Châu quay sang bà.
 
-"Thế tử Sóc nói với bổn cung ngày mùng ba," mẫu hậu nói. "Trước khi đi. Không phải lời của Sóc Châu Mục. Thế tử nói: *giàn gần nhất là của tiền quân. Tiền quân là đồn bắc.*"
+Nàng nhớ câu ấy. Mùng ba. Thế tử Sóc dừng ở cửa Phượng Nghi điện. Không quay lại. Nói một câu. Rồi đi. Hôm ấy nàng ghi câu ấy vào sổ. Không hiểu.
+
+"Thế tử nói ở cửa," mẫu hậu nói. "Không phải lời của Sóc Châu Mục. *Giàn gần nhất là của tiền quân. Tiền quân là đồn bắc.*"
 
 Bà dừng lại.
 
@@ -676,7 +678,7 @@ Nhưng khi đi ngang qua, y nói. Không quay đầu. Không to. Đủ cho ngư�
 
 "Nàng ấy không châm."
 
-"Bổn cung thấy," Minh Châu nói.
+"Ta thấy," Minh Châu nói.
 
 "Ta đứng ba trăm bước," y nói. "Ta thấy đội trưởng hàng đầu. Y không nhìn giàn sau lần thứ ba. Y nhìn người ngồi trên ngựa."
 

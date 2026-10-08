@@ -4,7 +4,7 @@ Mười một tháng Năm. Giờ Thìn.
 
 Phố Đông. Đầu ngõ phường in.
 
-Tiền trang Bách Lý ở Hạo Kinh là một tòa nhà ba gian, mái ngói xanh, cửa gỗ lim bọc đồng. Mười năm nay, cửa ấy mở từ giờ Mão tới giờ Dậu. Không ngày nào đóng. Kể cả Tết.
+Tiền trang Bách Lý ở Hạo Kinh là một tòa nhà ba gian, mái ngói xanh, cửa gỗ lim bọc đồng. Mười lăm năm nay, cửa ấy mở từ giờ Mão tới giờ Dậu. Không ngày nào đóng. Kể cả Tết.
 
 Sáng nay cửa đóng.
 

@@ -26,7 +26,7 @@ Năm mươi người không khiên ngày mùng tám, Binh Bộ rút về cổng 
 
 Y im một nhịp.
 
-"Lúc lệnh sử nói *Vệ La không nhận*," y nói. "Ta siết tay."
+"Lúc lệnh sử nói *Người thấy: Vệ La Minh Châu*," y nói. "Ta siết tay."
 
 * * *
 
@@ -68,31 +68,31 @@ Nàng quay vào.
 
 Nhị đệ.
 
-Y không chặn đường. Y đứng sát tường. Như người hầu chờ chủ đi qua.
+Hắn không chặn đường. Hắn đứng sát tường. Như người hầu chờ chủ đi qua.
 
 Nàng dừng.
 
-"Đại tỷ đặt cả thanh kiếm lên án," y nói.
+"Đại tỷ đặt cả thanh kiếm lên án," hắn nói.
 
 "Đệ buông tay," nàng nói.
 
-Y nhìn hai bàn tay mình. Không chắp. Buông.
+Hắn nhìn hai bàn tay mình. Không chắp. Buông.
 
-"Đệ không buông," y nói. "Đại tỷ lấy. Trong tay đệ không còn gì để buông."
+"Đệ không buông," hắn nói. "Đại tỷ lấy. Trong tay đệ không còn gì để buông."
 
 * * *
 
 "Đệ giận?"
 
-Y nghĩ. Thật. Nàng thấy y nghĩ.
+Hắn nghĩ. Thật. Nàng thấy hắn nghĩ.
 
-"Không," y nói. "Đệ đếm."
+"Không," hắn nói. "Đệ đếm."
 
 "Đếm gì?"
 
-"Tiếng," y nói. "Sáng nay ba nhà có một bí mật để chĩa vào Vệ La. Bây giờ năm nhà có một bí mật chĩa vào năm nhà. Đệ đếm xem giờ Mùi ai còn muốn bỏ tiếng *phế*."
+"Tiếng," hắn nói. "Sáng nay ba nhà có một bí mật để chĩa vào Vệ La. Bây giờ năm nhà có một bí mật chĩa vào năm nhà. Đệ đếm xem giờ Mùi ai còn muốn bỏ tiếng *phế*."
 
-Y dừng lại.
+Hắn dừng lại.
 
 "Bỏ tiếng phế vua thì là nói: vua đời thứ nhất có tội. Nói vua đời thứ nhất có tội thì là nói chiếu có tội. Chiếu có năm ấn."
 
@@ -102,19 +102,19 @@ Y dừng lại.
 
 * * *
 
-Y nhìn nàng.
+Hắn nhìn nàng.
 
 "Đại tỷ biết sẽ thế."
 
-"Ta không biết," nàng nói. "Ta chỉ biết nếu ta không đọc phần của Vệ La thì ta không có quyền đọc phần của ai."
+"Bổn cung không biết," nàng nói. "Bổn cung chỉ biết nếu bổn cung không đọc phần của Vệ La thì bổn cung không có quyền đọc phần của ai."
 
-Y gật đầu. Chậm.
+Hắn gật đầu. Chậm.
 
-"Đệ chọn dòng," y nói. "Đại tỷ không chọn. Đệ đã nghĩ người không chọn dòng thì thua người chọn dòng."
+"Đệ chọn dòng," hắn nói. "Đại tỷ không chọn. Đệ đã nghĩ người không chọn dòng thì thua người chọn dòng."
 
-Y quay đi. Rồi dừng.
+Hắn quay đi. Rồi dừng.
 
-"Giờ Mùi đệ không đứng sau Thượng thư," y nói. "Đệ đứng ở cửa. Nghi chú không có điều nào cho người soạn nghi chú."
+"Giờ Mùi đệ không đứng sau Thượng thư," hắn nói. "Đệ đứng ở cửa. Nghi chú không có điều nào cho người soạn nghi chú."
 
 * * *
 
@@ -160,7 +160,7 @@ Hàn Sách không đứng.
 
 Hoài An quay lại.
 
-"Hầm số bảy," Hàn Sách nói. "Ba lần Thiết Châu hỏi. Không ai trả lời. Bây giờ Thiết Châu biết câu trả lời. Hầm số bảy nằm trên đất Thư Châu. Đất của một nhà bị xóa. Thiết Châu đào sắt trên đất ấy gần hai trăm năm."
+"Hầm số bảy," Hàn Sách nói. "Ba lần Thiết Châu hỏi. Không ai trả lời. Bây giờ Thiết Châu biết câu trả lời. Hầm số bảy nằm trên đất Liêm Châu. Đất của một nhà bị xóa. Thiết Châu đào sắt trên đất ấy gần hai trăm năm."
 
 Ông dừng lại.
 
@@ -168,11 +168,11 @@ Hoài An quay lại.
 
 * * *
 
-"Thế Thiết Châu muốn gì?" Hoài An hỏi. "Trả hầm? Cho ai? Thư Châu còn ai?"
+"Thế Thiết Châu muốn gì?" Hoài An hỏi. "Trả hầm? Cho ai? Liêm Châu còn ai?"
 
-Ông nhìn về góc sảnh. Về phía Âu Dương tiên sinh.
+Ông nhìn quanh sảnh. Năm hàng ghế. Không ai đứng dậy.
 
-"Một thủ thư sáu mươi ba tuổi?"
+"Ai ở đây là người Liêm?"
 
 Âu Dương tiên sinh không ngẩng đầu.
 
@@ -326,7 +326,7 @@ Lâu.
 
 * * *
 
-"Thiết Châu ngừng mỏ," mẫu hậu nói. Quay về phía hàng xám sắt. "Ngừng mỏ thì thợ mỏ đi đâu? Ba hẻm ở Hắc Thạch tắt lò. Thợ rèn không có sắt. Thợ rèn đi đâu?"
+"Thiết Châu ngừng mỏ," mẫu hậu nói. Quay về phía hàng xám sắt. "Ngừng mỏ thì thợ mỏ đi đâu? Cả hẻm Hắc Thạch tắt lò. Thợ rèn không có sắt. Thợ rèn đi đâu?"
 
 "Tới cổng Nam," bà nói. "Ba nghìn bốn trăm hai mươi mốt người tới cổng Nam ngày mùng một tháng Sáu. Bổn cung không biết bao nhiêu người từ Thiết. Người giữ cổng Nam hôm ấy biết. Người ấy là người Hắc Thạch."
 

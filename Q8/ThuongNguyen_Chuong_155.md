@@ -54,7 +54,7 @@ Nàng không cần tên.
 
 Nàng đứng ở bàn phụ thân. Tay đặt trên mép ngăn kéo.
 
-*Không đưa. Không giấu. Không nói dối.* Không phải ba điều của nhà nàng. Nhà nàng không có ba điều. Nhà nàng có một điều. *Vì Tư Mã.*
+Nhà khác có điều này điều kia. Nhà nàng có một điều. *Vì Tư Mã.*
 
 Nàng đọc.
 
