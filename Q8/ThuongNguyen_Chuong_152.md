@@ -276,6 +276,40 @@ Nhị đệ không chờ.
 
 Hắn cúi chào. Đúng lễ của đệ trước tỷ. Rồi đi dọc hiên. Qua sân hòe. Qua ba trăm người.
 
+* * *
+
+Dưới gốc hòe lớn nhất, hắn dừng lại.
+
+Trước tấm ván kê trên hai viên gạch. Nghiên mực sứt úp xuống. Chồng giấy thô chặn bằng một hòn đá.
+
+Hắn cúi xuống. Lật nghiên mực lên. Nhìn đáy nghiên. Mực đã khô. Rồi úp nghiên xuống lại. Đúng chỗ cũ.
+
+"Người viết thư ở đây đâu?" hắn hỏi bà lão vừa múc cháo cho hắn.
+
+"Đi lấy nước," bà lão nói. "Con bé viết không lấy tiền."
+
+"Không lấy tiền," nhị đệ nói.
+
+Hắn rút từ tay áo một gói giấy nhỏ. Đặt lên tấm ván. Cạnh hòn đá.
+
+"Muối," hắn nói với bà lão. "Cho cháo."
+
+Rồi hắn đi.
+
+* * *
+
+Minh Châu đứng ở hiên dãy cuối.
+
+Một gói muối trên tấm ván của Tiểu Cẩn.
+
+Nàng không biết đó là lòng tốt hay là một dấu. Người áo xanh hỏi ông lão bán bút về người viết thư ba đồng. Ở trong giám, một người viết thư không lấy tiền. Nhị đệ lật nghiên mực lên. Nhìn đáy.
+
+Có lẽ cả hai.
+
+Ở nhà Vệ La, người ta không phải chọn giữa hai thứ ấy.
+
+Một khắc sau, Tiểu Cẩn về với một thùng nước. Thấy gói muối. Nhìn bà lão. Bà lão nói gì đó. Tiểu Cẩn không cầm gói muối lên. Nàng ấy đổ nó vào nồi cháo chung. Rồi ngồi xuống sau tấm ván. Lật nghiên mực lên. Mài mực.
+
 Ở cổng giám, một chiếc kiệu nhỏ đã đợi. Không phải kiệu của phủ Nhị hoàng tử. Kiệu rèm đỏ gấm. Hai người khiêng mặc áo nâu.
 
 * * *
