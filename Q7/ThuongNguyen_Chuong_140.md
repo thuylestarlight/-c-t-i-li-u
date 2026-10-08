@@ -160,7 +160,7 @@ Thái tử phi đứng dậy.
 
 Nàng ấy đi tới án. Đặt lên án một tờ giấy nhỏ. Rút từ đai lưng. Nét chữ nhỏ, đều, của người chép sổ hai lối.
 
-"Thư nhà," Tố Y nói. Giọng nàng ấy nhẹ. Không lên không xuống. "Phụ thân thần nữ viết. Mười hai tháng Ba. Một dòng."
+"Thư nhà," Tố Y nói. Giọng nàng ấy nhẹ. Không lên không xuống. "Phụ thân thần thiếp viết. Mười hai tháng Ba. Một dòng."
 
 Minh Châu nhìn.
 
@@ -168,15 +168,15 @@ Minh Châu nhìn.
 
 * * *
 
-"Thần nữ đã xin mẫu hậu một lần," Tố Y nói. "Năm kia. *Thần nữ muốn, nếu được đọc thứ mang tên mình.*"
+"Thần thiếp đã xin mẫu hậu một lần," Tố Y nói. "Năm kia. Khi còn là thần nữ. *Thần nữ muốn, nếu được đọc thứ mang tên mình.*"
 
 Nàng ấy nhìn Minh Châu.
 
-"Điện hạ viết bốn mươi bảy tờ. Có tên nhà thần nữ. Phụ thân thần nữ đọc chín tờ."
+"Điện hạ viết bốn mươi bảy tờ. Có tên nhà thần thiếp. Phụ thân thần thiếp đọc chín tờ."
 
 Nàng ấy dừng lại.
 
-"Thần nữ xin đọc bốn mươi bảy."
+"Thần thiếp xin đọc bốn mươi bảy."
 
 Minh Châu nhìn Thái tử phi.
 
