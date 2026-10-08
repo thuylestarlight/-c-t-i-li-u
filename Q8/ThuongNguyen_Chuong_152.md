@@ -310,6 +310,8 @@ Có lẽ cả hai.
 
 Một khắc sau, Tiểu Cẩn về với một thùng nước. Thấy gói muối. Nhìn bà lão. Bà lão nói gì đó. Tiểu Cẩn không cầm gói muối lên. Nàng ấy đổ nó vào nồi cháo chung. Rồi ngồi xuống sau tấm ván. Lật nghiên mực lên. Mài mực.
 
+Nàng ấy không nhìn về phía cổng giám, nơi nhị đệ vừa đi ra. Không nhìn về phía hiên dãy cuối. Nàng ấy nhìn tờ giấy thô trước mặt. Người tiếp theo trong hàng là một ông lão muốn viết thư cho con gái còn ở ngoài cổng Nam.
+
 Ở cổng giám, một chiếc kiệu nhỏ đã đợi. Không phải kiệu của phủ Nhị hoàng tử. Kiệu rèm đỏ gấm. Hai người khiêng mặc áo nâu.
 
 * * *
