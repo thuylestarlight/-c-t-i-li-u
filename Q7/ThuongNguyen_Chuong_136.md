@@ -80,6 +80,26 @@ Mặc Hàn gửi cho muội muội.
 
 * * *
 
+Sáu ngày trước, một gói khác nằm trên chính chiếc án này.
+
+Ngựa trạm thường từ kinh. Niêm sáp trơn. Không dấu. Không tên người gửi. *Sóc Châu Mục thân khải.*
+
+Chín tờ. Nét chép nhanh. Bút lông ngỗng. Trang đầu: *Bảy châu. Khảo. Người khảo: Vệ La Minh Châu, Lan Đài lệnh sử.*
+
+Ông đã đọc một đêm. Sáng ra, ông gọi Mặc Hàn. Đóng cửa thư phòng. Đặt chín tờ trước mặt con trai.
+
+Ông đã nghĩ: Mặc Hàn mở rương. Mặc Hàn chép. Mặc Hàn gửi về kinh. Kinh gửi lại cho ông.
+
+Mặc Hàn đọc chín tờ. Không đổi sắc mặt. Rồi nói một câu: *Nét chép của người Lễ Bộ. Bút lông ngỗng. Không phải nét của con.*
+
+Rồi không nói gì nữa. Tới trưa.
+
+Ông đã không biết dòng *Tướng đạo đông nam: Đạm Thai Khắc* trong chín tờ ấy từ đâu tới tay người khảo.
+
+Bây giờ ông biết.
+
+* * *
+
 "Con đọc rồi," ông nói.
 
 "Ba đêm," Tuyết Ly nói. "Rồi con đọc sổ nô của đồn bắc. Từ đầu. Bốn mươi ngày."
@@ -296,17 +316,19 @@ Người ấy là con vua.
 
 * * *
 
-"Lệnh sử sẽ công bố," Trọng Sơn nói.
+"Lệnh sử đã công bố," Trọng Sơn nói. "Chín tờ. Mười hai tháng Ba. Trên án này."
 
-"Lệnh sử hứa: ngày lệnh sử định, con biết trước."
+"Không phải lệnh sử," Tuyết Ly nói. "Huynh trưởng nói với con: nét bút lông ngỗng của người Lễ Bộ. Lệnh sử viết. Người khác chép. Người khác gửi."
 
-"Lệnh sử hứa."
+"Con tin."
+
+"Lệnh sử hứa: ngày lệnh sử định, con biết trước. Lệnh sử chưa định. Con chưa nhận tin gì."
 
 "Lệnh sử không nói dối," Tuyết Ly nói. "Con biết người nói dối nhìn thế nào. Con đã đứng trước ba trăm tân binh."
 
 Trọng Sơn nhìn con gái.
 
-"Khi ngày ấy tới," ông nói, "người ta sẽ gọi quân Sóc Châu là quân bờ sông Liêm."
+"Chín tờ ấy không chỉ tới Định Bắc thành," ông nói. "Khi người ta đọc hết, người ta sẽ gọi quân Sóc Châu là quân bờ sông Liêm."
 
 "Con biết."
 

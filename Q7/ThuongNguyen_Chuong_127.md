@@ -250,7 +250,7 @@ Dưới dòng cuối, một khoảng trống. Rồi một dòng trong ngoặc. C
 
 *(Bản gốc hết ở đây. Không tên.)*
 
-Rồi một dòng nữa. Không trong ngoặc. Chữ to hơn. Nét khác. Không nghiêng. Ấn mạnh. Như người viết đặt bút xuống rất lâu rồi mới viết.
+Rồi một dòng nữa. Không trong ngoặc. Chữ to hơn. Nét khác. Không nghiêng. Ấn mạnh. Như người viết đặt bút xuống giấy một lúc lâu rồi mới viết.
 
 *Chép xong. Mùa đông.*
 

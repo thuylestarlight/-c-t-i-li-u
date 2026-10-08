@@ -94,11 +94,11 @@ Ngày mười hai, Tiểu Cẩn đổi chỗ ở.
 
 Không ai báo cho Minh Châu. Hạ Thanh đi cổng Nam, thấy bàn thấp cạnh hàng nước có người khác ngồi. Một ông lão bán bút. Hạ Thanh mua một cây bút. Ông lão nói, khi đưa bút:
 
-"Con bé viết thư thuê dặn: ai mua bút của tôi mà hỏi, thì nói con bé sang bờ kênh phía tây. Sau lò nhuộm."
+"Con bé viết thư thuê dặn: ai mua bút của lão mà hỏi, thì nói con bé sang bờ kênh phía tây. Sau lò nhuộm."
 
 Hạ Thanh không hỏi gì. Ông lão tự nói.
 
-"Ba đồng một cây," ông lão nói thêm. "Con bé nói cô sẽ mua."
+"Ba đồng một cây," ông lão nói thêm. "Con bé nói cô nương sẽ mua."
 
 * * *
 
