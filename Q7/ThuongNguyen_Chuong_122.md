@@ -464,9 +464,11 @@ Thư Châu. Châu của sách. Con dấu cuộn sách mở. Lối chữ trên v�
 
 Một tòa nhà giữ sách, giữa Quốc Tử Giám, tên là Tàng Thư. Một hạ tầng không thuộc Lan Đài, không thuộc Lễ Bộ. Một điều giám quy: *thủ thư chưởng thược.*
 
-Một người thủ thư lớn lên cạnh đầm tây bắc. Ông nội dặn: *Họ thì giữ. Châu thì đừng hỏi.*
+Một người thủ thư giữ chìa hạ tầng ba mươi năm. Đọc được lối chữ không ai đọc. Đêm nàng đặt tờ giấy mỏng cuộn sách lên khoảng trống phía tây bắc, ông đứng dậy. Tay siết chùm chìa. Chìa va vào nhau. Một tiếng nhỏ.
 
-Một người bạn bốn mươi năm trước gọi ông là *Chỉ*. Không ai gọi họ của ông.
+Đêm nay, khi Hạ Thanh đọc hai chữ, ông đứng dậy. Đi ra. Không cầm đèn.
+
+Trên sổ của giám, trên chữ ký dưới tờ đăng ký đề tài, trên sổ nhận bốn mươi năm trước, ông chỉ ký một họ.
 
 Âu Dương.
 
