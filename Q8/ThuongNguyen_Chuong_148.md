@@ -250,6 +250,28 @@ Người bên cạnh không trả lời. Rồi trả lời.
 
 * * *
 
+Giờ Thân năm khắc, có tiếng bước chân trên bậc đá.
+
+Thái tử phi lên vọng lâu. Một mình. Hai cung nữ dừng ở bậc thứ một trăm. Áo lam nhạt. Trán lấm mồ hôi. Hai trăm mười bậc.
+
+Nàng ấy không nói gì với Minh Châu. Đứng cạnh lan can. Nhìn ra ngã ba Bia.
+
+Rồi nàng ấy rút cuốn sổ nhỏ khỏi đai lưng. Mở. Không viết. Cầm.
+
+"Thần thiếp không có quyền ra cổng," Thái tử phi nói. Khẽ. Không quay sang. "Phượng Nghi quy, điều chín."
+
+"Bổn cung cũng không."
+
+"Điện hạ ghi," Thái tử phi nói. "Thần thiếp đếm."
+
+Nàng ấy không nói đếm gì. Minh Châu thấy môi nàng ấy không mấp máy. Ngón tay cái đặt trên mép sổ. Mỗi khi gió đổi hướng và năm lá cờ ngoài đồng bay lệch đi, ngón tay ấy gõ khẽ một lần.
+
+Gần giờ Dậu, nàng ấy cài sổ lại. Cúi chào. Đi xuống.
+
+Không viết một chữ nào.
+
+* * *
+
 Giờ Dậu.
 
 Mặt trời xuống thấp ở phía tây. Bóng năm lá cờ dài ra trên gốc rạ. Bóng cờ xám sắt chạm tới ngã ba Bia. Rồi qua. Rồi chạm bóng cờ vàng sẫm.
